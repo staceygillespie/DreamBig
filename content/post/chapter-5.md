@@ -1,7 +1,7 @@
 ---
 date: 2017-04-13T11:15:58.000-04:00
 description: Quasimodo
-featured_image: "/images/esmeralda.jpg"
+featured_image: ''
 tags: []
 title: 'Chapter V: Quasimodo'
 
