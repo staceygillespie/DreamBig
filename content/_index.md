@@ -1,5 +1,5 @@
 ---
-title: 'Ananke: a Hugo Theme'
+title: DreamBig
 featured_image: "/images/dreambox-open.jpg"
 description: My DreamBox open for all to see.
 draft: true
