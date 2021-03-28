@@ -6,5 +6,8 @@ draft = true
 featured_image = ""
 tags = ["scene"]
 title = "DreamBox2"
+[menu.main]
+name = "DreamBoxLink"
+weight = 2
 
 +++
