@@ -5,6 +5,13 @@ admin_path: ''
 webhook_url: 
 sections:
 - type: directory
+  path: dreambox
+  label: DreamBox
+  create: all
+  match: "**/*"
+  templates:
+  - post
+- type: directory
   path: content
   label: Pages
   create: all
