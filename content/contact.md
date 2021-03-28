@@ -1,6 +1,6 @@
 ---
 title: Contact
-featured_image: "/images/img_4846-2.JPG"
+featured_image: "/images/img_4846-3.JPG"
 omit_header_text: true
 description: This is me and Gigi
 type: page
