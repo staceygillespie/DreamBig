@@ -18,13 +18,6 @@ sections:
   templates:
   - post
 - type: directory
-  path: content/dreambox
-  label: DreamBox
-  create: all
-  match: "**/*"
-  templates:
-  - post
-- type: directory
   path: content/about
   label: About
   create: all
