@@ -1,7 +1,7 @@
 ---
 title: Dream Big
 featured_image: "/images/dreambox-open.jpg"
-description: My DreamBox open for all to see.
+description: With Stacey
 draft: true
 
 ---
