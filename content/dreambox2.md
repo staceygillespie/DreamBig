@@ -7,7 +7,7 @@ featured_image = "/images/img_5135-2.JPG"
 tags = ["scene"]
 title = "DreamBox2"
 [menu.main]
-name = "DreamBoxLink"
+name = "DreamBox"
 weight = 2
 
 +++
