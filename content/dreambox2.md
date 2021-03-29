@@ -10,4 +10,8 @@ title = "DreamBox"
 weight = 2
 
 +++
+![](/images/dreambox-open.jpg)
+
+![](/images/img_0313.jpg)
+
 ![](/images/createroomdecal.JPG)
