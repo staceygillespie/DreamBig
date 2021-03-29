@@ -5,9 +5,8 @@ disable_share = false
 draft = true
 featured_image = "/images/img_5135-2.JPG"
 tags = ["scene"]
-title = "DreamBox2"
+title = "DreamBox"
 [menu.main]
-name = "DreamBox"
 weight = 2
 
 +++
