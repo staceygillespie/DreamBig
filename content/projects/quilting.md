@@ -8,4 +8,4 @@ tags = ["scene"]
 title = "Quilting"
 
 +++
-You ever wanted to quilt.  Me too.  Quilting.
+You ever wanted to quilt?  Me too.  Quilting.
