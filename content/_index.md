@@ -7,4 +7,4 @@ draft: true
 ---
 Dream box is a fabulous product!
 
-![](/images/dreambox-open.jpg)
+![](/images/img_0347.jpg)![](/images/img_0313.jpg)
