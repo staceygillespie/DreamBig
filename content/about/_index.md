@@ -5,6 +5,6 @@ featured_image: "/images/hylian_shield_by_jaelachan-d5pj5xa.png"
 draft: true
 
 ---
-{{< figure src="/images/Victor_Hugo-Hunchback.jpg" title="Illustration from Victor Hugo et son temps (1881)" >}}
+{{< figure src="/images/img_4846.JPG" title="Picture of Gigi and I" >}}
 
 _Here is another paragraph._
