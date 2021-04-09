@@ -10,6 +10,6 @@ menu:
 draft: true
 
 ---
-This is the website for using the fill in form: [Formspree](https://formspree.io/) Unfortunately I covered up the form that gets called with the KSL.com webpage - and it messes up that page with the data being passed.  Sorry!!
+Okay, I fixed it so that this form works.  Entries currently sent to johndgillespie...
 
 {{<form-contact action="https://formspree.io/f/mayayljz">}}
