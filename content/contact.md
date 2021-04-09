@@ -11,18 +11,4 @@ menu:
 ---
 This is the website for using the fill in form: [Formspree](https://formspree.io/) Unfortunately I covered up the form that gets called with the KSL.com webpage - and it messes up that page with the data being passed.  Sorry!!
 
-{{<!form action="https://formspree.io/johndgillespie1944@gmail.com"   >
-
-<!method="post">
-
-<!input type="text" name="name">
-
-<!input type="email" name="_replyto">
-
-<!input type="text" name="message">
-
-<!input type="submit" name="send">
-
-<!/form>}}
-
-{{<! form-contact action="http://example.com"  >}}
+{{< form-contact action="http://example.com"  >}}
