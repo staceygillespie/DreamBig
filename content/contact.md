@@ -12,12 +12,4 @@ draft: true
 ---
 This is the website for using the fill in form: [Formspree](https://formspree.io/) Unfortunately I covered up the form that gets called with the KSL.com webpage - and it messes up that page with the data being passed.  Sorry!!
 
-{{<form action="[http://formspree.io/](https://formspree.io/f/ "https://formspree.io/f/")johndgillespie1944@gmail.com" method="post">
-
-<label for="email">Your Email</label>
-
-<input name="Email" id="email" type="email">
-
-<button type="submit">Submit</button>
-
-</form>}}
+{{<form action="[http://formspree.io/](https://formspree.io/f/ "https://formspree.io/f/")johndgillespie1944@gmail.com" method="post">}}
