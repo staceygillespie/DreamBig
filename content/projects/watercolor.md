@@ -4,7 +4,7 @@ description = "Watercolor"
 disable_share = false
 draft = true
 featured_image = "/images/rabbit.jpeg"
-tags = ["scene"]
+tags = []
 title = "Watercolor"
 
 +++
