@@ -1,10 +1,12 @@
 ---
 title: About
-description: This will be a paragraph about me.
-featured_image: "/images/hylian_shield_by_jaelachan-d5pj5xa.png"
+description: Proud mother of five boys
+featured_image: "/images/20200825-dsc_3498-2.jpg"
 draft: true
 
 ---
-{{< figure src="/images/img_4846.JPG" title="Picture of Gigi and I" >}}
+I am an avid crafter and dabble in the entire spectrum of art.
 
-_Here is another paragraph._
+![](/images/stacey.jpeg)
+
+Thanks for visiting my webpage.
