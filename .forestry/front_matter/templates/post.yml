@@ -25,5 +25,6 @@ fields:
   label: disable_share
 pages:
 - content/dreambox2.md
+- content/projects/cricut-paper-crafting.md
 - content/projects/quilting.md
 - content/projects/watercolor.md
