@@ -24,7 +24,7 @@ fields:
   name: disable_share
   label: disable_share
 pages:
-- content/dreambox2.md
+- content/dreambox.md
 - content/projects/cricut-paper-crafting.md
 - content/projects/machine-embroidery.md
 - content/projects/quilting.md
