@@ -1,5 +1,5 @@
 ---
-baseURL: http://example.org/
+baseURL: /
 languageCode: en-us
 title: Home
 module:
@@ -17,9 +17,9 @@ sitemap:
 params:
   favicon: ''
   site_logo: ''
-  description: The last theme you'll ever need. Maybe.
+  description: Dream Big with Stacey
   facebook: ''
-  twitter: https://twitter.com/GoHugoIO
+  twitter: ''
   instagram: ''
   youtube: ''
   github: ''
@@ -31,4 +31,4 @@ params:
   rss: ''
   background_color_class: bg-black
   featured_image: "/images/QuiltBanner.jpg"
-  recent_posts_number: 2
+  recent_posts_number: 0
