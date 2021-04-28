@@ -6,7 +6,7 @@ draft: true
 
 ---
 ### Meet Stacey Gillespie
-
+---
 ![](/images/gillespie-stacey4-27-21-13.jpg)
 
 I am a creativity entrepreneur dedicated to bringing the joy of art to others. I have devoted my life to discovering new art forms and teaching that anyone can find peace and happiness through creative expression.
