@@ -11,13 +11,6 @@ fields:
 - type: text
   name: description
   label: description
-- name: a
-  type: blocks
-  label: a
-  template_types: []
-  config:
-    min: 
-    max: 
 pages:
 - content/_index.md
 - content/about/_index.md
