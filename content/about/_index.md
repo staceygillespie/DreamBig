@@ -2,7 +2,6 @@
 title: About
 description: Proud mother of five boys
 featured_image: "/images/20200825-dsc_3498-2.jpg"
-draft: true
 
 ---
 ### Meet Stacey Gillespie
