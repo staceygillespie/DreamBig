@@ -3,7 +3,7 @@ date = 2021-03-29T03:09:37Z
 description = "Watercolor"
 disable_share = false
 draft = true
-featured_image = "/images/rabbit.jpeg"
+featured_image = "/images/img_3629.jpeg"
 tags = []
 title = "Watercolor"
 
