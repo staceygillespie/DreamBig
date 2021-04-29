@@ -3,7 +3,7 @@ date = 2021-03-28T02:18:30Z
 description = ""
 disable_share = false
 draft = true
-featured_image = "/images/gillespie-stacey4-27-21-33.jpg"
+featured_image = "/images/gillespie-stacey4-27-21-40.jpg"
 tags = []
 title = "DreamBox"
 [menu.main]
