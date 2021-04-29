@@ -1,6 +1,6 @@
 +++
 date = 2021-04-17T17:38:29Z
-description = "Cutting machines are like a brush in an artist's hands.                                                                                  The creative possibilities are endless!"
+description = "Cutting machines are like a brush in an artist's hands.  The creative possibilities are endless!"
 disable_share = false
 draft = true
 featured_image = "/images/200426_project-life-9c6775.jpg"
@@ -17,3 +17,7 @@ I used Cricut cardstock and pearl paper to make this gift box for a friend.  i w
 I used circuit pearl paper for the Peony and Cricut cardstock make this gift box.  I also inked the flower with my Stamping' Up! inks  I was a Stampin' Up! demonstrator from 1999-2006.  I don't stamp much anymore, but iIstill love it.
 
 ![](/images/img_0145.JPEG)
+
+#### I love Cricut's infusible ink.  I made this mermaid pillow for my grandson and  my boys all humored me by taking part in this 2019 Christmas break activity where we all designed our own shirts.
+
+![](/images/capture.JPG)
