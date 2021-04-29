@@ -16,69 +16,69 @@ weight = 2
 
 ### MOBILE ORGANIZATION
 
-Change location of crafts if you need room for something else -- part of my office vs in dedicated sewing room. Can be put in living room, kitchen
+With your crafts in one mobile cabinet you can move them to a new location if needed -- living room, kitchen, etc.
 
-Can be used for more than crafts: Paper crafts, art supplies, sewing, yarn home or virtual school, command center, home business, Lego collection, baking supplies, Warhammer...etc
+Mine are in part of my office and also in a dedicated sewing room
+
+Use it for whatever is your passion: Paper crafts, art, sewing, yarn, home / virtual school, command center, home business, Lego collection, baking supplies, Warhammer...etc
 
 ### CUSTOMIZABLE
 
-Shelves can be put anywhere, order more shelves if needed
+Shelves can be placed and spaced in any configuration you need
 
 Totes can be moved easily with the new tote track system
 
-80 vs 40 tote package
+40 tote package expandable to 80
 
-Can change the whole look by adding liners to the clear totes
+Change the whole look by adding liners to the clear totes
 
 ![](/images/img_0313.jpg)
 
 ### CLEAR TOTES
 
-* I love being able to see what I have quickly
-* Strong sturdy totes
-* Holds 12 x 12 paper and watercolor pads or vinyl etc
-* Many people use liners to customize the look
-* Project totes!
-* Use them in other places
-* Comes with 40 upgradable to 80
+* I love being able to quickly see everything I have
+* Totes made out of strong and sturdy material
+* Can accommodate 12 x 12 paper, watercolor pads, vinyl, etc.
+* Using liners to customize the look is very popular
+* Project totes!  For storing projects in progress
+* Store them in other places - swap them in and out
+* Dream Box comes with 40 totes -- upgradable to 80
 
-### EVERYTHING IN ARMS REACH
+### EVERYTHING AT ARMS REACH
 
-Easy to start and clean up
+Easy to get started!  Easy to clean up!
 
-I know what I have and don’t double buy
+When I know what I have I don’t double buy
 
 ![](/images/createroomdecal.JPG)
 
-### NO SEARCHING 
+### NO SEARCHING
 
 Through bins and closets for SUPPLIES
 
-### LARGE TABLE 
+### LARGE TABLE
 
 2’11.5D x 2’10.75 W
 
-2 people comfortably. 3- me and 2 grandkids.
+Accommodates 2 people comfortably - or 3 (me and 2 grandkids!)
 
 My own dedicated table vs kitchen table or counter
 
-3 desks – sitting, standing, drafting - pictures
+3 desks – sitting, standing, drafting
 
 ### DEDICATED SPACE for my CRICUT
 
-At the back of the table easy to pull out and use
+Located at back of the table; easy to pull out and use
 
 ### CROWN and LIGHT (add on)
 
-Light shines on the table where I need it.
+Light shines on the table where I need it
 
-LED natural daylight, true colors
+LED natural daylight = true colors
 
-Like the way it makes Dream Box look with Crown
+I like the way the crown makes my Dream Box look
 
-Great for wat3ercolr painting during day, vital for anything at night.
-
-Dream Box DRAWERS (add on)
+Great for watercolor painting during day, vital for anything at night
 
 ### Other Create Room FURNITURE and ACCESSORIES
 
@@ -148,7 +148,7 @@ PLASTIC NOTION TRAY great for more organization
 
 POWER PACKAGE
 
-Power Up! – love that it can attach to wall with clips, it I small and has place I can charge my iPad
+Power Up! – love that it can attach to wall with clips, it is small and has a place I can charge my iPad
 
 Upper Hand – use for watching a tutorial when I need the table space. Use it more for taking a video or picture
 
