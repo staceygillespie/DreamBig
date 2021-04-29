@@ -17,7 +17,7 @@ weight = 2
 ### MOBILE ORGANIZATION
 
 * With your crafts in one mobile cabinet you can move them to a new location if needed -- living room, kitchen, etc.
-* Mine are in part of my office and also in a dedicated sewing room
+* Mine are in part of my office and also in my dedicated sewing room (2nd DreamBox)
 * Use it for whatever is your passion: Paper crafts, art, sewing, yarn, home / virtual school, command center, home business, Lego collection, baking supplies, Warhammer...etc
 
 ### CUSTOMIZABLE
@@ -27,7 +27,7 @@ weight = 2
 * 40 tote package expandable to 80
 * Change the whole look by adding liners to the clear totes
 
-![](/images/img_0313.jpg)
+![](/images/gillespie-stacey4-27-21-25.jpg "In-view Totes")
 
 ### CLEAR TOTES
 
@@ -44,11 +44,11 @@ weight = 2
 * Easy to get started!  Easy to clean up!
 * When I know what I have I don’t double buy
 
-![](/images/createroomdecal.JPG)
-
 ### NO MORE SEARCHING
 
 * Through bins and closets for SUPPLIES
+
+  ![](/images/gillespie-stacey4-27-21-73.jpg)
 
 ### LARGE TABLE
 
@@ -96,18 +96,28 @@ Located at back of the table; easy to pull out and use
 * Cons: takes up room in your box for tracks to insert table
 * Heavy/ need place to store when not in use
 
+![](/images/dreambox-accessories.JPG)
+
+![](/images/gillespie-stacey4-27-21-23.jpg)
+
 ### PAPER ORGANIZER
 
 * Love the way it looks
 * Can customize it for stamp pads, vinyl rolls etc.
 
+  ![](/images/gillespie-stacey4-27-21-28-2.jpg)
+
 ### 8 SHALLOW TOTES
 
 * Love the way these let me micro organize
 
+  ![](/images/gillespie-stacey4-27-21-19.jpg)
+
 ### TOOL CUBBY
 
 *  can use for stamp pads or other items
+
+![](/images/2020-dreambox-may-14-9-3.jpg)
 
 ### CRAFTER’S CADDY
 
@@ -119,15 +129,21 @@ Located at back of the table; easy to pull out and use
 * Fits table exactly and works well
 * But I like the look of other mats better
 
+![](/images/gillespie-stacey4-27-21-71.jpg)
+
 ### TOTE LIDS
 
 * These are useful when storing totes under the table or in the closet
 * I also love them for carrying to a class
 * Otherwise I prefer not to use lids
 
+  > ![](/images/gillespie-stacey4-27-21-94.jpg)
+
 ### PLASTIC NOTION TRAY
 
 * great for more organization
+
+![](/images/gillespie-stacey4-27-21-95-2.jpg)
 
 ### POWER PACKAGE
 
