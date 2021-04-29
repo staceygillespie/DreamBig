@@ -1,6 +1,6 @@
 +++
 date = 2021-04-17T17:38:29Z
-description = "Cutting machines are like a brush in an artist's hands.  The creative possibilities are endless!"
+description = "Cutting machines are like a brush in an artist's hands.                                                                                  The creative possibilities are endless!"
 disable_share = false
 draft = true
 featured_image = "/images/200426_project-life-9c6775.jpg"
