@@ -3,7 +3,7 @@ date = 2021-03-28T02:18:30Z
 description = ""
 disable_share = false
 draft = true
-featured_image = "/images/fceead7d-a30b-458d-b409-34d51c4663ea-2.jpeg"
+featured_image = "/images/gillespie-stacey4-27-21-33.jpg"
 tags = []
 title = "DreamBox"
 [menu.main]
@@ -48,7 +48,7 @@ weight = 2
 
 * Through bins and closets for SUPPLIES
 
-  ![](/images/gillespie-stacey4-27-21-73.jpg)
+  ![](/images/gillespie-stacey4-27-21-73.jpg)![](/images/gillespie-stacey4-27-21-39.jpg)
 
 ### LARGE TABLE
 
@@ -123,6 +123,8 @@ Located at back of the table; easy to pull out and use
 
 * I love having a trash can connected to my table and a place to hold my drink
 * Used to share one for both boxes and found I needed 2
+
+![](/images/gillespie-stacey4-27-21-40.jpg)
 
 ### CUTTING MAT
 
