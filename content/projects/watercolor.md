@@ -1,6 +1,6 @@
 +++
 date = 2021-03-29T03:09:37Z
-description = "My watercolor journey"
+description = "My journey to learn to watercolor"
 disable_share = false
 draft = true
 featured_image = "/images/img_3629.jpeg"
