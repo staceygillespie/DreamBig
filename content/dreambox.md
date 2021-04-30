@@ -1,6 +1,6 @@
 +++
 date = 2021-03-28T02:18:30Z
-description = ""
+description = "The DreamBox is an all-in-one cabinet that closes completely to hide away all your tools and projects and opens into a full studio craft room complete with a table and overhead light!"
 disable_share = false
 draft = true
 featured_image = "/images/gillespie-stacey4-27-21-40.jpg"
@@ -165,3 +165,5 @@ Located at back of the table; easy to pull out and use
 ### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 ### Use the code DREAMBIG to save $100 or £100!
+
+\** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my DreamBoxes, my Sew Station and my DreamCart myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
