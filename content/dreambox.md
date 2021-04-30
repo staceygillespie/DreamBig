@@ -42,13 +42,14 @@ weight = 2
 ### EVERYTHING AT ARMS REACH right where I'm working
 
 * I can easily get started in my creative pursuit and it's easy to clean up!
-*  I know what I have I don’t double buy
+* I know what I have I don’t double buy
 
 ### NO MORE SEARCHING
 
-* Through bins and closets for SUPPLIES
+* Through bins and closets for supplies or in multiple rooms
+* The whole family knows where to find the tape or scissors..etc.
 
-  ![](/images/gillespie-stacey4-27-21-73.jpg)![](/images/gillespie-stacey4-27-21-39.jpg)
+  ![](/images/gillespie-stacey4-27-21-73.jpg)
 
 ### LARGE TABLE
 
@@ -56,6 +57,8 @@ weight = 2
 * Accommodates 2 people comfortably - or 3 (me and 2 grandkids!)
 * My own dedicated table vs kitchen table or counter
 * 3 desks – sitting, standing, drafting
+
+![](/images/2020-dreambox-may-14-18.jpg)
 
 ### DEDICATED SPACE for my CRICUT
 
@@ -65,7 +68,7 @@ Located at back of the table; easy to pull out and use
 
 * Light shines on the table where I need it
 * LED natural daylight = true colors
-* I like the way the crown makes my DreamBox look
+* I like the way the crown completes the look of my [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link")
 * Great for watercolor painting during day, vital for anything at night
 
 ## Other Create Room                    FURNITURE and ACCESSORIES
