@@ -72,8 +72,9 @@ I keep it at back of the table and can easily to pull it out to use
 * Light shines on the table where I need it
 * LED natural daylight = true colors
 * I like the way the crown completes the look of my [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link")
-* Great for watercolor painting during day, vital for anything at night
-* 
+* Great for watercolor painting during day, vital for creating anything at night
+
+![](/images/2020-dreambox-may-14-17.jpg)
 
 ## Other Create Room                    FURNITURE and ACCESSORIES
 
