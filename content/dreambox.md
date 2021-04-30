@@ -27,8 +27,6 @@ weight = 2
 * Comes with a 40 tote package that can be expanded to 80
 * Change the whole look by adding liners to the clear totes
 
-![](/images/totes.JPG)
-
 ### CLEAR TOTES
 
 * I love being able to quickly see everything I have
@@ -39,6 +37,8 @@ weight = 2
 * Store them in other places - swap them in and out
 * Dream Box comes with 40 totes -- upgradable to 80
 
+![](/images/totes.JPG)
+
 ### EVERYTHING AT ARMS REACH right where I'm working
 
 * I can easily get started in my creative pursuit and it's easy to clean up!
@@ -48,6 +48,7 @@ weight = 2
 
 * Through bins and closets for supplies or in multiple rooms
 * The whole family knows where to find the tape or scissors..etc.
+* 
 
   ![](/images/gillespie-stacey4-27-21-73.jpg)
 
@@ -62,7 +63,9 @@ weight = 2
 
 ### DEDICATED SPACE for my CRICUT
 
-Located at back of the table; easy to pull out and use
+I keep it at back of the table and can easily to pull it out to use
+
+![](/images/gillespie-stacey4-27-21-18.jpg)
 
 ### CROWN and LIGHT (add on)
 
@@ -70,14 +73,15 @@ Located at back of the table; easy to pull out and use
 * LED natural daylight = true colors
 * I like the way the crown completes the look of my [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link")
 * Great for watercolor painting during day, vital for anything at night
+* 
 
 ## Other Create Room                    FURNITURE and ACCESSORIES
 
+![](/images/gillespie-stacey4-27-21-74.jpg)![](/images/dreambox-with-captions.JPG)
+
 ![](/images/sew-station.JPG)
 
-![](/images/gillespie-stacey4-27-21-74.jpg)
-
-### [SEW STATION]() 
+#### SEW STATION
 
 ##### Use the code DREAMBIGSEW to save $50
 
@@ -85,10 +89,10 @@ Reasons I bought my Sew Station:
 
 * Recessed sewing machine: my back and neck needed it lower!
 * Comes with Sew Steady acrylic inset made for your machine
-* Back table leaf and side table leaf can be extended for more room when quilting. 
+* Back table leaf and side table leaf can be extended for more room when quilting.
 
   You can chose to add the side table to left or right side .I choose the left since I need extra room when I'm quilting.
-* Electric Lift – moves MY machine up to sew / down to stow 
+* Electric Lift – moves MY machine up to sew / down to stow
 * Turns it into small cabinet
 * Spool holder- l love having easy access to my thread!
 * On caster wheels so I can move my sewing table where I need it
@@ -105,19 +109,18 @@ Reasons I bought my Sew Station:
 
 ### SIDE TABLES
 
-* I like having extra table space for my big projects
-* Pros: more space/ standing or sitting heights.
-* Cons: takes up room in your box for tracks to insert table
-* Heavy/ need place to store when not in use
+* I love having extra table space for my big projects
+* Pros: more space and you can use them at both standing or sitting heights.
+* Cons: takes up room in your box for tracks to insert table, they are heavy and you need place to store them when not in use
 
-![](/images/dreambox-with-captions.JPG)
+  ![](/images/gillespie-stacey4-27-21-32.jpg)
 
 ![](/images/gillespie-stacey4-27-21-23.jpg)
 
 ### PAPER ORGANIZER
 
-* Love the way it looks
-* Can customize it for stamp pads, vinyl rolls etc.
+* Love the way it looks in my setup
+* Can customize it to fit stamp pads, vinyl rolls..etc.
 
 ![](/images/gillespie-stacey4-27-21-28-2.jpg)
 
@@ -165,7 +168,7 @@ Reasons I bought my Sew Station:
 
 **Power Up!** – love that:
 
-* it can attach to side of [DreamBox]( https://www.createroom.com/?ref=YJvA8 "US  link") with included clips
+* it can attach to side of [DreamBox](https://www.createroom.com/?ref=YJvA8 "US  link") with included clips
 * it is small
 * Two USB ports to charge my iPad and phone
 
@@ -184,4 +187,4 @@ Reasons I bought my Sew Station:
 
 \** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my[ DreamBox]()es, my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart]() myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
 
- @CreateRoom #CreateRoomPartner #CreateRoom #Sponsered
+@CreateRoom #CreateRoomPartner #CreateRoom #Sponsered
