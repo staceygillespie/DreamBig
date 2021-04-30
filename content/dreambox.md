@@ -61,11 +61,15 @@ weight = 2
 
 ![](/images/2020-dreambox-may-14-18.jpg)
 
+---
+
 ### DEDICATED SPACE for my CRICUT
 
 I keep it at back of the table and can easily to pull it out to use
 
 ![](/images/gillespie-stacey4-27-21-18.jpg)
+
+---
 
 ### CROWN and LIGHT (add on)
 
