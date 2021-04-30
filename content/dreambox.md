@@ -96,8 +96,6 @@ Located at back of the table; easy to pull out and use
 * Cons: takes up room in your box for tracks to insert table
 * Heavy/ need place to store when not in use
 
-![](/images/dreambox-with-captions.JPG)
-
 ![](/images/gillespie-stacey4-27-21-23.jpg)
 
 ### PAPER ORGANIZER
