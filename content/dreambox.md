@@ -96,7 +96,7 @@ Located at back of the table; easy to pull out and use
 * Cons: takes up room in your box for tracks to insert table
 * Heavy/ need place to store when not in use
 
-![](/images/dreambox-accessories.JPG)
+![](/images/dreambox-with-captions.JPG)
 
 ![](/images/gillespie-stacey4-27-21-23.jpg)
 
@@ -115,7 +115,7 @@ Located at back of the table; easy to pull out and use
 
 ### TOOL CUBBY
 
-*  can use for stamp pads or other items
+* can use for stamp pads or other items
 
 ![](/images/2020-dreambox-may-14-9-3.jpg)
 
@@ -151,11 +151,11 @@ Located at back of the table; easy to pull out and use
 
 **Power Up!** – love that:
 
-*  it can attach to side of DreamBox with included clips
+* it can attach to side of DreamBox with included clips
 * it is small
 * Two USB ports to charge my iPad and phone
 
-**Upper Hand** 
+**Upper Hand**
 
 * I use this to watch tutorials when I need the table space
 * I use it more for taking a video or picture
