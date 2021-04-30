@@ -77,7 +77,7 @@ Located at back of the table; easy to pull out and use
 
 ![](/images/gillespie-stacey4-27-21-74.jpg)
 
-### SEW STATION 
+### [SEW STATION]() 
 
 ##### Use the code DREAMBIGSEW to save $50
 
@@ -95,11 +95,12 @@ Reasons I bought my Sew Station:
 * It connects to my [DreamBox]() table so i have extra table space when I quilt.
 * 2 notion totes, 2 shoe box, 3 shelves
 
-### DREAMCART
+  ### DREAMCART
 
-* Customizable shelves (7) and clear totes
-* Added storage
-* 2 leaves 25.5” x 28.5” each
+  ##### Use the code DREAMBIG50 to save $50
+  * 7 Customizable shelves and clear totes
+  * Added storage
+  * 2 leaves 25.5” x 28.5” each
 * On caster wheels
 
 ### SIDE TABLES
@@ -164,7 +165,7 @@ Reasons I bought my Sew Station:
 
 **Power Up!** – love that:
 
-* it can attach to side of DreamBox with included clips
+* it can attach to side of [DreamBox]( https://www.createroom.com/?ref=YJvA8 "US  link") with included clips
 * it is small
 * Two USB ports to charge my iPad and phone
 
@@ -173,10 +174,14 @@ Reasons I bought my Sew Station:
 * I use this to watch tutorials when I need the table space
 * I use it more for taking a video or picture
 
-**Boom Baby** – I haven't used this like I thought I would
+**Boom Baby** – I haven't used this like I thought I would, but it has a great sound
 
 ### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
-### Use the code DREAMBIG to save $100 or £100!
+#### Use the code DREAMBIG to save $100 or £100!
 
-\** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my DreamBoxes, my Sew Station and my DreamCart myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
+###### this code does not expire
+
+\** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my[ DreamBox]()es, my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart]() myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
+
+ @CreateRoom #CreateRoomPartner #CreateRoom #Sponsered
