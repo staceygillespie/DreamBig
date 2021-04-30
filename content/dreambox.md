@@ -96,11 +96,7 @@ Located at back of the table; easy to pull out and use
 * Cons: takes up room in your box for tracks to insert table
 * Heavy/ need place to store when not in use
 
-  ![](/images/white-block.JPG)
-
 ![](/images/dreambox-with-captions.JPG)
-
-![](/images/white-block.JPG)
 
 ![](/images/gillespie-stacey4-27-21-23.jpg)
 
@@ -109,23 +105,17 @@ Located at back of the table; easy to pull out and use
 * Love the way it looks
 * Can customize it for stamp pads, vinyl rolls etc.
 
-  ![](/images/white-block.JPG)
-
-  ![](/images/gillespie-stacey4-27-21-28-2.jpg)
+![](/images/gillespie-stacey4-27-21-28-2.jpg)
 
 ### 8 SHALLOW TOTES
 
 * Love the way these let me micro organize
 
-  ![](/images/white-block.JPG)
-
-  ![](/images/gillespie-stacey4-27-21-19.jpg)
+![](/images/gillespie-stacey4-27-21-19.jpg)
 
 ### TOOL CUBBY
 
 * can use for stamp pads or other items
-
-  ![](/images/white-block.JPG)
 
 ![](/images/2020-dreambox-may-14-9-3.jpg)
 
@@ -134,16 +124,12 @@ Located at back of the table; easy to pull out and use
 * I love having a trash can connected to my table and a place to hold my drink
 * Used to share one for both boxes and found I needed 2
 
-  ![](/images/white-block.JPG)
-
 ![](/images/gillespie-stacey4-27-21-40.jpg)
 
 ### CUTTING MAT
 
 * Fits table exactly and works well
 * But I like the look of other mats better
-
-  ![](/images/white-block.JPG)
 
 ![](/images/gillespie-stacey4-27-21-71.jpg)
 
@@ -153,15 +139,11 @@ Located at back of the table; easy to pull out and use
 * I also love them for carrying to a class
 * Otherwise I prefer not to use lids
 
-  ![](/images/white-block.JPG)
-
   > ![](/images/gillespie-stacey4-27-21-94.jpg)
 
 ### PLASTIC NOTION TRAY
 
 * great for more organization
-
-  ![](/images/white-block.JPG)
 
 ![](/images/gillespie-stacey4-27-21-95-2.jpg)
 
