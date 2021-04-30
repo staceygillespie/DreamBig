@@ -16,11 +16,11 @@ weight = 2
 
 ### MOBILE ORGANIZATION
 
-* With your supplies in one mobile cabinet you can move them to a new location, if needed --to the living room, kitchen, a spare room, the garage or your basement...etc.
-* Mine are in part of my office and also in my dedicated sewing room (2nd DreamBox)
+* With your supplies in one mobile cabinet you can move them to a new location, if needed --to the living room, kitchen, a spare room, the garage or your basement.
+* Mine are in part of my office and also in my dedicated sewing room (I love having 2!)
 * Use it for whatever is your passion: Paper crafts, art, sewing, yarn, home / virtual school, as a command center, home business, for your Lego collection, baking supplies, Warhammer...etc.
 
-### CUSTOMIZABLE
+### CUSTOMIZABLE (the main reason I bought mine)
 
 * Shelves can be placed and spaced in ANY configuration you need
 * Totes can be moved easily with the new tote track system
@@ -39,10 +39,10 @@ weight = 2
 * Store them in other places - swap them in and out
 * Dream Box comes with 40 totes -- upgradable to 80
 
-### EVERYTHING AT ARMS REACH
+### EVERYTHING AT ARMS REACH right where I'm working
 
-* Easy to get started!  Easy to clean up!
-* When I know what I have I don’t double buy
+* I can easily get started in my creative pursuit and it's easy to clean up!
+*  I know what I have I don’t double buy
 
 ### NO MORE SEARCHING
 
