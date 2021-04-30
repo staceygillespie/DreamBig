@@ -16,18 +16,18 @@ weight = 2
 
 ### MOBILE ORGANIZATION
 
-* With your crafts in one mobile cabinet you can move them to a new location if needed -- living room, kitchen, etc.
+* With your supplies in one mobile cabinet you can move them to a new location, if needed --to the living room, kitchen, a spare room, the garage or your basement...etc.
 * Mine are in part of my office and also in my dedicated sewing room (2nd DreamBox)
-* Use it for whatever is your passion: Paper crafts, art, sewing, yarn, home / virtual school, command center, home business, Lego collection, baking supplies, Warhammer...etc
+* Use it for whatever is your passion: Paper crafts, art, sewing, yarn, home / virtual school, as a command center, home business, for your Lego collection, baking supplies, Warhammer...etc.
 
 ### CUSTOMIZABLE
 
-* Shelves can be placed and spaced in any configuration you need
+* Shelves can be placed and spaced in ANY configuration you need
 * Totes can be moved easily with the new tote track system
-* 40 tote package expandable to 80
+* Comes with a 40 tote package that can be expanded to 80
 * Change the whole look by adding liners to the clear totes
 
-![](/images/gillespie-stacey4-27-21-25.jpg "In-view Totes")
+![](/images/totes.JPG)
 
 ### CLEAR TOTES
 
