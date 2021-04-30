@@ -73,19 +73,29 @@ Located at back of the table; easy to pull out and use
 
 ## Other Create Room                    FURNITURE and ACCESSORIES
 
-### SEW STATION
+![](/images/sew-station.JPG)
 
-* Reasons I bought:
-* Recessed sewing machine: my back and neck needed lower
-* Comes with Sew Steady acrylic inset
-* Back table leaf and side table leaf for more room when quilting. Can add side table to left or right side.
-* Electric Lift – moves machine up to sew / down to stow - turns it into small cabinet
+![](/images/gillespie-stacey4-27-21-74.jpg)
+
+### SEW STATION 
+
+##### Use the code DREAMBIGSEW to save $50
+
+Reasons I bought my Sew Station:
+
+* Recessed sewing machine: my back and neck needed it lower!
+* Comes with Sew Steady acrylic inset made for your machine
+* Back table leaf and side table leaf can be extended for more room when quilting. 
+
+  You can chose to add the side table to left or right side .I choose the left since I need extra room when I'm quilting.
+* Electric Lift – moves MY machine up to sew / down to stow 
+* Turns it into small cabinet
 * Spool holder- l love having easy access to my thread!
 * On caster wheels so I can move my sewing table where I need it
-* Use it with my DreamBox table
+* It connects to my [DreamBox]() table so i have extra table space when I quilt.
 * 2 notion totes, 2 shoe box, 3 shelves
 
-### DREAM CART
+### DREAMCART
 
 * Customizable shelves (7) and clear totes
 * Added storage
