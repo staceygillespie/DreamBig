@@ -233,6 +233,6 @@ Reasons I bought my Sew Station:
 
 ###### this code does not expire
 
-\** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my[ DreamBoxes](), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart]() myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
+\** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?ref=YJvA8 "DreamBox"), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dream Cart") myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
 
 @CreateRoom #CreateRoomPartner #CreateRoom #Sponsered
