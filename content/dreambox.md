@@ -134,7 +134,7 @@ Reasons I bought my Sew Station:
 ### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables")
 
 * I love having extra table space for my big projects
-* Pro: more space and you can use them at both standing or sitting heights.
+* Pro: more space and you can use them at both standing or sitting heights
 * Con: track to insert table uses up space in DreamBox 
 * Con: tables are heavy and a storage place is needed when not in use
 
