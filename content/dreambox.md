@@ -170,7 +170,7 @@ Reasons I bought my Sew Station:
 
 ### CRAFTER’S CADDY
 
-* I love having a trash can connected to my table and a place to hold my drink
+* I love a trash can connected to my table and a place to hold my drink
 * Used to share one for both boxes and found I needed 2
 
 ## ![](/images/2020-dreambox-may-14-9-3.jpg)
