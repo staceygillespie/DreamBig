@@ -32,7 +32,7 @@ weight = 2
 * I love being able to quickly see everything I have
 * Totes made out of strong and sturdy material
 * Can accommodate 12 x 12 paper, watercolor pads, vinyl, etc.
-* I love to use them as Project totes -- everything for one projects in one place
+* I love to use them as Project totes -- everything for one project in one place
 * Dream Box comes with 40 totes -- upgradable to 80
 
 ![](/images/gillespie-stacey4-27-21-25.jpg)
@@ -58,7 +58,6 @@ See how Anna personalized her totes with fun liners -- and did you notice her Dr
 
 * Through bins and closets for supplies or in multiple rooms
 * The whole family knows where to find the tape or scissors..etc.
-* 
 
 ![](/images/gillespie-stacey4-27-21-73.jpg)
 
