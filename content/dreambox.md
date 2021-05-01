@@ -12,9 +12,9 @@ weight = 2
 +++
 ## Why I Love My [DreamBox](https://www.createroom.com/?ref=YJvA8 "DreamBox")
 
-![](/images/dreambox-open.jpg)
+#### <span style="color:blue">Use the code DREAMBIG to save $100 or £100!</span>
 
-#### Use the code DREAMBIG to save $100 or £100!
+![](/images/dreambox-open.jpg)
 
 ### MOBILE ORGANIZATION
 
@@ -135,15 +135,15 @@ Reasons I bought my Sew Station:
 
 ### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables")
 
-  * I love having extra table space for my big projects
-  * Pros:
-    * More space
-    * Use them at both standing or sitting heights
-  * Cons:
-    * Track to insert table uses up space in DreamBox 
-    * Tables are heavy and need a storage place when not in use
+* I love having extra table space for my big projects
+* Pros:
+  * More space
+  * Use them at both standing or sitting heights
+* Cons:
+  * Track to insert table uses up space in DreamBox
+  * Tables are heavy and need a storage place when not in use
 
-  ![](/images/gillespie-stacey4-27-21-32.jpg)
+![](/images/gillespie-stacey4-27-21-32.jpg)
 
 ***
 
