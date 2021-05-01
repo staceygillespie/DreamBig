@@ -186,7 +186,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### [TOTE LIDS](https://uk.createroom.com/products/inview-tote-lid?ref=YJvA8 "Tote Lids")
+### [TOTE LIDS](https://www.createroom.com/collections/inview-totes/products/inview%E2%84%A2-tote-lid?_pos=6&_sid=3217598b1&_ss=r?ref=YJvA8 "Tote Lids")
 
 * I love them when taking totes to a class or get together
 * They are great for stacking totes
@@ -233,6 +233,6 @@ Reasons I bought my Sew Station:
 
 ###### this code does not expire
 
-\** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my[ DreamBox]()es, my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart]() myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
+\** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my[ DreamBoxes](), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart]() myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
 
 @CreateRoom #CreateRoomPartner #CreateRoom #Sponsered
