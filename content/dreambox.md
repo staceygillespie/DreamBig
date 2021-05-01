@@ -87,7 +87,7 @@ I keep it at back of the table and can easily to pull it out to use
 
 * Light shines on the table where I need it
 * LED natural daylight = true colors
-* I like the way the crown completes the look of my [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link")
+* I like the way the crown completes the look of my DreamBox
 * Great for watercolor painting during day, vital for creating anything at night
 
 ![](/images/2020-dreambox-may-14-17.jpg)
@@ -113,7 +113,7 @@ Reasons I bought my Sew Station:
 * Turns it into small cabinet
 * Spool holder- l love having easy access to my thread!
 * On caster wheels so I can move my sewing table where I need it
-* It connects to my [DreamBox]() table so i have extra table space when I quilt.
+* It connects to my DreamBox table so i have extra table space when I quilt.
 * 2 notion totes, 2 shoe box, 3 shelves
 
 ![](/images/gillespie-stacey4-27-21-74.jpg)
@@ -212,7 +212,7 @@ Reasons I bought my Sew Station:
 
 **Power Up!**
 
-* Mounted power strip attaches to side of [DreamBox](https://www.createroom.com/?ref=YJvA8 "US  link") with included clips
+* Mounted power strip attaches to side of DreamBox with included clips
 * Small and low profile
 * Two USB ports to charge my iPad and phone
 
