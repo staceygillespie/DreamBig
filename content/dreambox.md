@@ -37,7 +37,13 @@ weight = 2
 * Store them in other places - swap them in and out
 * Dream Box comes with 40 totes -- upgradable to 80
 
-![](/images/totes.JPG)
+![](/images/gillespie-stacey4-27-21-25.jpg)
+
+See how Anna personalized her totes with fun liners -- and did you notice her DreamBox is in her bedroom? It can go almost anywhere.
+
+![](/images/anna-wilson.jpg)
+
+***
 
 ### EVERYTHING AT ARMS REACH right where I'm working
 
@@ -50,7 +56,9 @@ weight = 2
 * The whole family knows where to find the tape or scissors..etc.
 * 
 
-  ![](/images/gillespie-stacey4-27-21-73.jpg)
+![](/images/gillespie-stacey4-27-21-73.jpg)
+
+***
 
 ### LARGE TABLE
 
@@ -61,7 +69,7 @@ weight = 2
 
 ![](/images/2020-dreambox-may-14-18.jpg)
 
----
+***
 
 ### DEDICATED SPACE for my CRICUT
 
@@ -69,7 +77,7 @@ I keep it at back of the table and can easily to pull it out to use
 
 ![](/images/gillespie-stacey4-27-21-18.jpg)
 
----
+***
 
 ### CROWN and LIGHT (add on)
 
@@ -80,13 +88,13 @@ I keep it at back of the table and can easily to pull it out to use
 
 ![](/images/2020-dreambox-may-14-17.jpg)
 
+***
+
 ## Other Create Room                    FURNITURE and ACCESSORIES
 
-![](/images/gillespie-stacey4-27-21-74.jpg)![](/images/dreambox-with-captions.JPG)
+***
 
-![](/images/sew-station.JPG)
-
-#### SEW STATION
+### SEW STATION
 
 ##### Use the code DREAMBIGSEW to save $50
 
@@ -104,13 +112,22 @@ Reasons I bought my Sew Station:
 * It connects to my [DreamBox]() table so i have extra table space when I quilt.
 * 2 notion totes, 2 shoe box, 3 shelves
 
-  ### DREAMCART
+![](/images/gillespie-stacey4-27-21-74.jpg)
 
-  ##### Use the code DREAMBIG50 to save $50
-  * 7 Customizable shelves and clear totes
-  * Added storage
-  * 2 leaves 25.5” x 28.5” each
+## ![](/images/sew-station.JPG)
+
+***
+
+### DREAMCART
+
+##### Use the code DREAMBIG50 to save $50
+
+* 7 Customizable shelves and clear totes
+* Added storage
+* 2 leaves 25.5” x 28.5” each
 * On caster wheels
+
+***
 
 ### SIDE TABLES
 
@@ -120,40 +137,50 @@ Reasons I bought my Sew Station:
 
   ![](/images/gillespie-stacey4-27-21-32.jpg)
 
-![](/images/gillespie-stacey4-27-21-23.jpg)
+***
 
 ### PAPER ORGANIZER
 
 * Love the way it looks in my setup
 * Can customize it to fit stamp pads, vinyl rolls..etc.
 
-![](/images/gillespie-stacey4-27-21-28-2.jpg)
+## ![](/images/gillespie-stacey4-27-21-23.jpg)
+
+***
 
 ### 8 SHALLOW TOTES
 
 * Love the way these let me micro organize
 
-![](/images/gillespie-stacey4-27-21-19.jpg)
+## ![](/images/gillespie-stacey4-27-21-28-2.jpg)
+
+***
 
 ### TOOL CUBBY
 
 * can use for stamp pads or other items
 
-![](/images/2020-dreambox-may-14-9-3.jpg)
+## ![](/images/gillespie-stacey4-27-21-19.jpg)
+
+***
 
 ### CRAFTER’S CADDY
 
 * I love having a trash can connected to my table and a place to hold my drink
 * Used to share one for both boxes and found I needed 2
 
-![](/images/gillespie-stacey4-27-21-40.jpg)
+## ![](/images/2020-dreambox-may-14-9-3.jpg)
+
+***
 
 ### CUTTING MAT
 
 * Fits table exactly and works well
 * But I like the look of other mats better
 
-![](/images/gillespie-stacey4-27-21-71.jpg)
+## ![](/images/gillespie-stacey4-27-21-40.jpg)
+
+***
 
 ### TOTE LIDS
 
@@ -161,13 +188,17 @@ Reasons I bought my Sew Station:
 * I also love them for carrying to a class
 * Otherwise I prefer not to use lids
 
-  > ![](/images/gillespie-stacey4-27-21-94.jpg)
+## ![](/images/gillespie-stacey4-27-21-71.jpg)
+
+***
 
 ### PLASTIC NOTION TRAY
 
 * great for more organization
 
-![](/images/gillespie-stacey4-27-21-95-2.jpg)
+![](/images/gillespie-stacey4-27-21-94.jpg)
+
+***
 
 ### POWER PACKAGE
 
@@ -183,6 +214,10 @@ Reasons I bought my Sew Station:
 * I use it more for taking a video or picture
 
 **Boom Baby** – I haven't used this like I thought I would, but it has a great sound
+
+## ![](/images/gillespie-stacey4-27-21-95-2.jpg)
+
+***
 
 ### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
