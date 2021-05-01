@@ -94,7 +94,7 @@ I keep it at back of the table and can easily to pull it out to use
 
 ***
 
-## Other Create Room                    FURNITURE and ACCESSORIES
+## Other Create Room                    [FURNITURE](https://www.createroom.com/collections/furniture?ref=YJvA8 "Furniture") and [ACCESSORIES](https://www.createroom.com/collections/accessories/?ref=YJvA8 "Accessories")
 
 ***
 
@@ -122,7 +122,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### DREAMCART
+### [DREAMCART](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dreamcart")
 
 ##### Use the code DREAMBIG50 to save $50
 
@@ -133,7 +133,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### SIDE TABLES
+### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables")
 
 * I love having extra table space for my big projects
 * Pros: more space and you can use them at both standing or sitting heights.
@@ -143,7 +143,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### PAPER ORGANIZER
+### [PAPER ORGANIZER](https://www.createroom.com/collections/accessories/products/paper-organizer?_pos=1&_sid=159b89d2d&_ss=r?ref=YJvA8 "Paper Organizer")
 
 * Love the way it looks in my setup
 * Can customize it to fit stamp pads, vinyl rolls..etc.
@@ -152,7 +152,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### 8 SHALLOW TOTES
+### [8 SHALLOW TOTES](https://www.createroom.com/collections/inview-totes/products/8-shallow-totes?_pos=1&_sid=867c6261c&_ss=r?ref=YJvA8 "Shallow Totes")
 
 * Love the way these let me micro organize
 
@@ -160,7 +160,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### TOOL CUBBY
+### [TOOL CUBBY](https://www.createroom.com/collections/accessories/products/tool-cubby?ref=YJvA8 "Tool Cubby")
 
 * can use for stamp pads or other items
 
@@ -168,7 +168,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### CRAFTER’S CADDY
+### [CRAFTER’S CADDY](https://www.createroom.com/collections/accessories/products/crafters-caddy?_pos=5&_sid=9158ee687&_ss=r?ref=YJvA8 "Caddy")
 
 * I love a trash can connected to my table and a place to hold my drink
 * Used to share one for both boxes and found I needed 2
@@ -177,7 +177,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### CUTTING MAT
+### [CUTTING MAT](https://www.createroom.com/collections/accessories/products/limited-edition-cutting-mat?_pos=7&_sid=ea7117559&_ss=r?ref=YJvA8 "Cutting Mat")
 
 * Fits table exactly and works well
 * But I like the look of other mats better
@@ -186,7 +186,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### TOTE LIDS
+### [TOTE LIDS](https://uk.createroom.com/products/inview-tote-lid?ref=YJvA8 "Tote Lids")
 
 * I love them when taking totes to a class or get together
 * They are great for stacking totes
@@ -200,7 +200,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### PLASTIC NOTION TRAY
+### [PLASTIC NOTION TRAY](https://www.createroom.com/collections/inview-totes/products/plastic-notions-tray-inserts?_pos=2&_sid=708725df2&_ss=r?ref=YJvA8 "Notion Tray")
 
 * great for more organization
 
@@ -208,7 +208,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### POWER PACKAGE
+### [POWER PACKAGE](https://www.createroom.com/collections/accessories/products/power-package?ref=YJvA8 "Power Package")
 
 **Power Up!**
 
