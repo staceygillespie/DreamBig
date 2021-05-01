@@ -105,14 +105,13 @@ Reasons I bought my Sew Station:
 
 * Recessed sewing machine: my back and neck needed it lower!
 * Comes with Sew Steady acrylic inset made for your machine
-* Back table leaf and side table leaf can be extended for more room when quilting.
-
-  You can choose to add the side table to left or right side. I put it on the left for when I need extra room for quilting.
+* Back and side table leaves can be extended for more room when quilting
+* Add side table to left or right side -- I prefer the left
 * Electric Lift – moves my machine up to sew / down to stow
 * Turns it into small cabinet
-* Spool holder- l love having easy access to my thread!
+* Spool holder- easy access to my thread!
 * On caster wheels so I can move my sewing table where I need it
-* It connects to my DreamBox table so i have extra table space when I quilt.
+* Connects to my DreamBox table so I have extra table space when I quilt
 * 2 notion totes, 2 shoe box, 3 shelves
 
 ![](/images/gillespie-stacey4-27-21-74.jpg)
@@ -135,8 +134,9 @@ Reasons I bought my Sew Station:
 ### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables")
 
 * I love having extra table space for my big projects
-* Pros: more space and you can use them at both standing or sitting heights.
-* Cons: takes up room in your box for tracks to insert table, they are heavy and you need place to store them when not in use
+* Pro: more space and you can use them at both standing or sitting heights.
+* Con: track to insert table uses up space in DreamBox 
+* Con: tables are heavy and a storage place is needed when not in use
 
   ![](/images/gillespie-stacey4-27-21-32.jpg)
 
