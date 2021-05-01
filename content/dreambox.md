@@ -161,7 +161,7 @@ Reasons I bought my Sew Station:
 
 ### [TOOL CUBBY](https://www.createroom.com/collections/accessories/products/tool-cubby?ref=YJvA8 "Tool Cubby")
 
-* can use for stamp pads or other items
+* Use for pens, markers, stamp pads, paint brushes, etc.
 
 ## ![](/images/gillespie-stacey4-27-21-19.jpg)
 
