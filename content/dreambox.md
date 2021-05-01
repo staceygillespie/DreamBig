@@ -12,7 +12,7 @@ weight = 2
 +++
 ## Why I Love My [DreamBox](https://www.createroom.com/?ref=YJvA8 "DreamBox")
 
-#### <span style="color:blue">Use the code DREAMBIG to save $100 or £100!</span>
+#### Use the code DREAMBIG to save $100 or £100!
 
 ![](/images/dreambox-open.jpg)
 
