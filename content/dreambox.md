@@ -1,6 +1,6 @@
 +++
 date = 2021-03-28T02:18:30Z
-description = "The DreamBox is an all-in-one cabinet that closes completely to hide away all your tools and projects and opens into a full studio craft room complete with a table and overhead light!"
+description = "Go from clutter to organizational joy"
 disable_share = false
 draft = true
 featured_image = "/images/gillespie-stacey4-27-21-40.jpg"
@@ -10,7 +10,7 @@ title = "DreamBox"
 weight = 2
 
 +++
-## 
+#### The DreamBox is an all-in-one cabinet that closes completely to hide away all your tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
