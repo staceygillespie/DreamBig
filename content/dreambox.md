@@ -32,16 +32,20 @@ weight = 2
 * I love being able to quickly see everything I have
 * Totes made out of strong and sturdy material
 * Can accommodate 12 x 12 paper, watercolor pads, vinyl, etc.
-* Using liners to customize the look is very popular
-* Project totes!  For storing projects in progress
-* Store them in other places - swap them in and out
+* I love to use them as Project totes -- everything for one projects in one place
 * Dream Box comes with 40 totes -- upgradable to 80
 
 ![](/images/gillespie-stacey4-27-21-25.jpg)
 
+* Using liners to customize the look is very popular
+
 See how Anna personalized her totes with fun liners -- and did you notice her DreamBox is in her bedroom? It can go almost anywhere.
 
 ![](/images/anna-wilson.jpg)
+
+* Store them in other places - swap them in and out
+
+![](/images/gillespie-stacey4-27-21-70.jpg)
 
 ***
 
@@ -184,9 +188,13 @@ Reasons I bought my Sew Station:
 
 ### TOTE LIDS
 
-* These are useful when storing totes under the table or in the closet
-* I also love them for carrying to a class
-* Otherwise I prefer not to use lids
+* I love them when taking totes to a class or get together
+* They are great for stacking totes
+* However I prefer not to use lids when totes are in my DreamBox
+
+![](/images/totelidslaunch-0406.jpeg)
+
+* Lids make stacking totes for storage easy -- under the table, in the closet
 
 ## ![](/images/gillespie-stacey4-27-21-71.jpg)
 
