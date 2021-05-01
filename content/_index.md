@@ -11,8 +11,6 @@ I loved my first one so much that I bought a 2nd one!  I have one in our office,
 
 I love how you can have your DreamBox open when you need access to your materials, and closed when you want a more tidy look.
 
-![](/images/dreambox-open-and-closed.JPG)
-
 ![](/images/img_0347.jpg)
 
 ![](/images/img_0310.jpg)
