@@ -128,10 +128,10 @@ Reasons I bought my Sew Station:
 
 ##### Use the code DREAMBIG50 to save $50
 
-* 7 Customizable shelves and clear totes
+* 7 Customizable shelves and 13 clear totes
 * Added storage
 * 2 leaves 25.5” x 28.5” each
-* On caster wheels
+* On caster wheels, can be easily moved.
 
 ***
 
