@@ -24,7 +24,7 @@ weight = 2
 * Mine are in part of my office and also in my dedicated sewing room (I love having 2!)
 * Use it for whatever is your passion: Paper crafts, art, sewing, yarn, home / virtual school, as a command center, home business, for your Lego collection, baking supplies, Warhammer...etc.
 
-### CUSTOMIZABLE (the main reason I bought mine)
+### CUSTOMIZABLE - the main reason I bought mine
 
 * Shelves can be placed and spaced in ANY configuration you need
 * Totes can be moved easily with the new tote track system
@@ -56,7 +56,7 @@ See how Anna personalized her totes with fun liners -- and did you notice her Dr
 ### EVERYTHING AT ARMS REACH right where I'm working
 
 * I can easily get started in my creative pursuit and it's easy to clean up!
-* I know what I have I don’t double buy
+* I know what I have and I don’t double buy
 
 ### NO MORE SEARCHING
 
