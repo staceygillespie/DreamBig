@@ -15,4 +15,6 @@ I love how you can have your DreamBox open when you need access to your material
 
 ![](/images/img_0347.jpg)
 
+![](/images/img_0310.jpg)
+
 ![](/images/gillespie-stacey4-27-21-39.jpg)
