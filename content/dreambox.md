@@ -98,7 +98,7 @@ I keep it at back of the table and can easily to pull it out to use
 
 ***
 
-### SEW STATION
+### [SEW STATION](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew")
 
 ##### Use the code DREAMBIGSEW to save $50
 
@@ -210,10 +210,10 @@ Reasons I bought my Sew Station:
 
 ### POWER PACKAGE
 
-**Power Up!** – love that:
+**Power Up!**
 
-* it can attach to side of [DreamBox](https://www.createroom.com/?ref=YJvA8 "US  link") with included clips
-* it is small
+* Mounted power strip attaches to side of [DreamBox](https://www.createroom.com/?ref=YJvA8 "US  link") with included clips
+* Small and low profile
 * Two USB ports to charge my iPad and phone
 
 **Upper Hand**
