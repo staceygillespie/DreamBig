@@ -11,7 +11,9 @@ title = " Watercolor"
 
 #### **My journey to learn to watercolor**
 
-![](/images/2020-dreambox-may-14-17.jpg)![](/images/tuscan-landscape-geoff-kersey-april-2021.jpeg)
+![](/images/2020-dreambox-may-14-17.jpg)
+
+![](/images/tuscan-landscape-geoff-kersey-april-2021.jpeg)
 
 This is my latest finished painting:
 
