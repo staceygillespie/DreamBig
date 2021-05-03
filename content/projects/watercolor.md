@@ -9,3 +9,7 @@ title = " Watercolor"
 
 +++
 Water.  We all need it to survive.  But now it has a higher purpose.
+
+![](/images/2020-dreambox-may-14-17.jpg)
+
+![](/images/hollyhocks-scan.jpg)
