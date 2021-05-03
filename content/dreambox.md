@@ -108,7 +108,7 @@ I keep it at back of the table and can easily to pull it out to use
 Reasons I bought my Sew Station:
 
 * Recessed sewing machine: my back and neck needed it lower!
-* Comes with Sew Steady acrylic inset made for your machine
+* Comes with Sew Steady acrylic inset made for my machine
 * Back and side table leaves can be extended for more room when quilting
 * Add side table to left or right side -- I prefer the left
 * Electric Lift – moves my machine up to sew / down to stow
