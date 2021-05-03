@@ -36,4 +36,6 @@ The [Blue Door]() a Paul Clark tutorial - Feb 2021
 
 ![](/images/lma-sewing-machine-feb-2021.jpeg)
 
-[Antique Sewing Machine]() a Let's Make Art tutorial, I used a different photo.
+[Antique Sewing Machine]() a Let's Make Art tutorial, I used a different photo.![](/images/rabbit.jpeg)
+
+[Spring Rabbit]() Let's Make Art tutorial - Feb 2021. I painted this with my sister and niece, but forgot to get a picture with all of us.
