@@ -10,7 +10,7 @@ title = "DreamBox"
 weight = 2
 
 +++
-#### The [DreamBox]( https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
+#### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
@@ -133,6 +133,12 @@ Reasons I bought my Sew Station:
 * 2 leaves 25.5” x 28.5” each
 * On caster wheels, can be easily moved.
 
+![](/images/dreamcart-measurements.JPG)
+
+I just got my DreamCart and my son put it together.  Stay tuned for how I like and use it.
+
+![](/images/ben-building-dreamcart.jpeg)
+
 ***
 
 ### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables")
@@ -146,6 +152,10 @@ Reasons I bought my Sew Station:
   * Tables are heavy and need a storage place when not in use
 
 ![](/images/gillespie-stacey4-27-21-32.jpg)
+
+I have both side tables and love using both.
+
+![](/images/dreambox-side-tables-nov-2019jpg.jpg)
 
 ***
 
