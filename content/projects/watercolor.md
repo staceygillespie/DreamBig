@@ -13,6 +13,8 @@ title = " Watercolor"
 
 ![](/images/2020-dreambox-may-14-17.jpg)![](/images/tuscan-landscape-geoff-kersey-april-2021.jpeg)
 
+This is my latest finished painting:
+
 [Tuscan Landscape]() a Geoff Kersey tutorial on ArtTutor -April 2021
 
 ![](/images/snow-girl-paul-clark-dec-2020.jpeg)
