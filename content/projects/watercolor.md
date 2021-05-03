@@ -8,7 +8,7 @@ tags = ["watercolor", "brusho", "family", "painting"]
 title = " Watercolor"
 
 +++
-#### **My journey to learn to watercolor**
+#### **My journey to learn to watercolor.**
 
 ![](/images/2020-dreambox-may-14-17.jpg)
 
