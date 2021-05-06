@@ -5,6 +5,7 @@ featured_image = "/images/gillespie-stacey4-27-21-32_crop.jpg"
 title = "Current Deals"
 
 +++
+![](/images/dreambox-with-new-totes.png)
 
 * **Up to $1,000 off (first 100 only)**
 * $200 off DreamBox
@@ -17,4 +18,4 @@ title = "Current Deals"
 
 * 20% off ALL accessories (**including NEW Dividrawers**!)
 
-![](/images/new-drawers-cubbyjpg.JPG)
+![](/images/new-drawers-cubbyjpg.JPG)![](/images/choose-totes-2.jpg)
