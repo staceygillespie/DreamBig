@@ -26,7 +26,7 @@ weight = 2
 
 ***
 
-#### $200 off [DreamBox](https://www.dreambigwithstacey.com/dreambox/)!
+#### $200 off [DreamBox](/dreambox)!
 
 #### ![](/images/choose-totes-2.jpg)
 
@@ -58,7 +58,7 @@ weight = 2
 
 ![](/images/img_0601.jpg)
 
-#### $100 off Dream Cart and Side Tables, and $50 off Sew Station when purchased with DreamBox
+#### $100 off [DreamCart](/dreambox#dreamcart) and [Side Tables](/dreambox#side-tables), and $50 off [Sew Station](/dreambox#sew-station) when purchased with DreamBox
 
 ##### No code required
 
