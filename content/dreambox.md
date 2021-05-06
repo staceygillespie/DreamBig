@@ -6,7 +6,7 @@ featured_image = "/images/gillespie-stacey4-27-21-40.jpg"
 tags = []
 title = "DreamBox"
 [menu.main]
-weight = 3
+weight = 4
 
 +++
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
