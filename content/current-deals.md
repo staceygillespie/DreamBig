@@ -64,7 +64,7 @@ weight = 2
 
 ***
 
-#### $50 off on NEW [Create Room Cubby](https://www.createroom.com/products/cubby?variant=39419416772670)
+#### $50 off on NEW [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
 
 ![](/images/blue_900x600_crop_center.jpg)
 
