@@ -140,7 +140,7 @@ I just got my DreamCart and my son put it together.  Stay tuned for how I like a
 
 ***
 
-### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables") {side-tables}
+### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables") {#side-tables}
 
 * I love having extra table space for my big projects
 * Pros:
