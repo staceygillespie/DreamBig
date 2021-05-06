@@ -2,7 +2,6 @@
 date = 2021-03-28T02:18:30Z
 description = "I went from clutter to organizational joy"
 disable_share = false
-draft = true
 featured_image = "/images/gillespie-stacey4-27-21-40.jpg"
 tags = []
 title = "DreamBox"
