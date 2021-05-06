@@ -5,12 +5,11 @@ featured_image = "/images/gillespie-stacey4-27-21-32_crop.jpg"
 title = "Current Deals"
 
 +++
+###### Codes work during sale.
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM</span> to save $200 off your DreamBox!</b>
 
 <b>Or if you already have one, use <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM20</span> for 20% off ALL accessories! _(including NEW Dividrawers_!)</b>
-
-###### Codes work during sale.
 
 ### Plus more discounts in the Mother's Day sale! Save up to $1000 (First 100 only!)![](/images/dreambox-with-new-totes.png)
 
