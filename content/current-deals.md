@@ -9,9 +9,9 @@ title = "Current Deals"
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM</span> to save $200 off your DreamBox!</b>
 
-<b>Use <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM20</span> for 20% off ALL accessories!</b>
+<b>Or if you already have one, use <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM20</span> for 20% off ALL accessories! _(including NEW Dividrawers_!)</b>
 
-<b><span style="font-size:small;">(During sale)</span></b>
+###### Codes apply during sale.
 
 ### Plus more discounts in the Mother's Day sale! Save up to $1000 (First 100 only!)
 
@@ -62,7 +62,3 @@ title = "Current Deals"
 ![](/images/blue_900x600_crop_center.jpg)
 
 #### On your pre-order of this NEW furniture piece when purchased with your DreamBox. A pop up will appear when you add the DreamBox to your cart!
-
-***
-
-### **DreamBox Owners** get 20% off ALL accessories (**including NEW Dividrawers**!)
