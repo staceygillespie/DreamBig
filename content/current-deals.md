@@ -61,10 +61,14 @@ title = "Current Deals"
 
 ***
 
-#### $50 off on NEW Create Room Cubby
+#### $50 off on NEW [Create Room Cubby](https://www.createroom.com/products/cubby?variant=39419416772670)
 
 ![](/images/blue_900x600_crop_center.jpg)
 
 #### On your pre-order of this NEW furniture piece when purchased with your DreamBox. A pop up will appear when you add the DreamBox to your cart!
 
-![](/images/e39a623a-e5b8-4a5c-9126-0d1b4a8f5096-2.png)![](/images/f3bac065-341d-4902-a59d-3a71c1d5a379.png)
+Can be stacked or placed side by side![](/images/cubbies-together.png)
+
+#### Can be put side-by side or stacked. Also comes in more colors
+
+![](/images/cubbystyleoptions-2.jpg)
