@@ -1,5 +1,5 @@
 ---
-baseURL: /
+baseURL: "/"
 languageCode: en-us
 title: Home
 module:
@@ -15,7 +15,7 @@ sitemap:
   priority: 0.5
   filename: sitemap.xml
 params:
-  favicon: 'favicon.png'
+  favicon: favicon.png
   site_logo: ''
   description: Dream Big with Stacey
   facebook: ''
