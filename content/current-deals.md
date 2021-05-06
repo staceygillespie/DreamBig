@@ -11,7 +11,9 @@ title = "Current Deals"
 
 <b>Or if you already have one, use <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM20</span> for 20% off ALL accessories! _(including NEW Dividrawers_!)</b>
 
-### Plus more discounts in the Mother's Day sale! Save up to $1000 (First 100 only!)![](/images/dreambox-with-new-totes.png)
+# Mother's Day Sale
+
+### Save up to $1000 (First 100 only!)![](/images/dreambox-with-new-totes.png)
 
 ![](/images/new-drawers-cubbyjpg.JPG)
 
