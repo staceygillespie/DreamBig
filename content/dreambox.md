@@ -103,7 +103,7 @@ I keep it at back of the table and can easily to pull it out to use
 
 ### [SEW STATION](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew") {#sew-station}
 
-##### Use the code DREAMBIGSEW to save $50
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save $50 <span style="font-size:small;"></span></b>
 
 Reasons I bought my Sew Station:
 
@@ -126,7 +126,7 @@ Reasons I bought my Sew Station:
 
 ### [DREAMCART](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dreamcart")
 
-##### Use the code DREAMBIG50 to save $50
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG50</span> to save $50 <span style="font-size:small;"></span></b>
 
 * 7 Customizable shelves and 13 clear totes
 * Added storage
