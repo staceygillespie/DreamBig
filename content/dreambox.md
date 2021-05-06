@@ -124,7 +124,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### [DREAMCART](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dreamcart")
+### [DREAMCART](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dreamcart") {#dreamcart}
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG50</span> to save $50 <span style="font-size:small;"></span></b>
 
@@ -141,7 +141,7 @@ I just got my DreamCart and my son put it together.  Stay tuned for how I like a
 
 ***
 
-### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables")
+### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables") {side-tables}
 
 * I love having extra table space for my big projects
 * Pros:
