@@ -2,6 +2,9 @@
 description = "Proud mother of five sons"
 featured_image = "/images/dsc_7989-2.jpg"
 title = "About Stacey"
+[menu.main]
+name = "About"
+weight = 1
 
 +++
 ### Meet Stacey Gillespie
