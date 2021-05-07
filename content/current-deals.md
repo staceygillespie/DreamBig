@@ -73,10 +73,8 @@ weight = 3
 Can be stacked or placed side by side
 
 <video width="640" height="480" controls>  
-<source src="/images/b55b3246-a3de-432c-a173-ffb332834012.mp4" type="video/mp4">  
+<source src="/images/cubby-colors.mp4" type="video/mp4">  
 </video>
-
-[cubby-colors.mp4](/images/cubby-colors.mp4 "cubby-colors.mp4")
 
 ![](/images/cubbies-together.png)
 
