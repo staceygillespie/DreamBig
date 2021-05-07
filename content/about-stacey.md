@@ -1,6 +1,5 @@
 +++
 description = "Proud mother of five sons"
-draft = true
 featured_image = "/images/dsc_7989-2.jpg"
 title = "About Stacey"
 
