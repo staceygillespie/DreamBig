@@ -70,17 +70,13 @@ weight = 3
 
 #### On your pre-order of this NEW furniture piece when purchased with your DreamBox. A pop up will appear when you add the DreamBox to your cart!
 
-Can be stacked or placed side by side
-
-<video width="640" height="480" controls>  
-<source src="/images/cubby-colors.mp4" type="video/mp4">  
-</video>
-
 ![](/images/cubbies-together.png)
 
 #### Can be put side-by side or stacked. Also comes in more colors
 
-![](/images/cubbystyleoptions-2.jpg)
+<video width="640" height="480" controls>  
+<source src="/images/cubby-colors.mp4" type="video/mp4">  
+</video>
 
 ***
 
