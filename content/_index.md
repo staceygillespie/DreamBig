@@ -14,7 +14,7 @@ I'm grateful for a supportive husband who has, for years, put up with my mess wh
 
 I loved my first one so much that I bought a 2nd one!  I have one in our office, which is the first room you see when you walk in my front door, and my second [DreamBox](/dreambox/) in my sewing room where I have both a [DreamBox](/dreambox/) and a [Sew Station](/dreambox/#sew-station).
 
-See current deals on these with the [Mother's Day Sale](/CurrentDeals/) going on right now.
+See current deals on these with the [Mother's Day Sale](/current-deals/) going on right now.
 
 I love how you can have your DreamBox open when you need access to your materials, and closed when you want a more tidy look.
 
