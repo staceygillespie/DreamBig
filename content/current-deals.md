@@ -82,11 +82,15 @@ weight = 3
 
 ### CREATE ROOM DIVIDRAWERS
 
+![](/images/stylesgif_900x600_crop_center.gif)
+
+![](/images/dividers_gif_900x600_crop_center.gif)
+
+#### Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order tomorrow @ 11 am MT
+
 <video width="640" height="480" controls>  
 <source src="/images/tote-stacks_1.mp4" type="video/mp4">  
 </video>
-
-#### Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order tomorrow @ 11 am MT
 
 ***
 
