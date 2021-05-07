@@ -80,11 +80,11 @@ Can be stacked or placed side by side![](/images/cubbies-together.png)
 
 ### CREATE ROOM DIVIDRAWERS
 
-<video width="320" height="240" controls>  
- <source src="/images/tote-stacks_1.mp4" type="video/mp4">  
+<video width="640" height="480" controls>  
+<source src="/images/tote-stacks_1.mp4" type="video/mp4">  
 </video>
 
-####  Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order tomorrow @ 11 am MT
+#### Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order tomorrow @ 11 am MT
 
 ***
 
