@@ -12,7 +12,7 @@ weight = 3
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM</span> to save $200 off your DreamBox!</b>
 
-<b>Or if you already have one, use <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM20</span> for 20% off ALL accessories! _(including NEW Dividrawers_!)</b>
+<b>Or if you already have one, use <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM20</span> for 20% off ALL accessories! _(including NEW DiviDrawers_!)</b>
 
 # May 2021: Mother's Day Sale!
 
@@ -78,4 +78,22 @@ Can be stacked or placed side by side![](/images/cubbies-together.png)
 
 ***
 
+### CREATE ROOM DIVIDRAWERS
+
+<video width="320" height="240" controls>  
+ <source src="/images/tote-stacks_1.mp4" type="video/mp4">  
+</video>
+
+####  Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order tomorrow @ 11 am MT
+
+***
+
+###### Codes work during sales.
+
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM</span> to save $200 off your DreamBox!</b>
+
+<b>Or if you already have one, use <span style="color:#bf6667;font-size:xx-large;">DREAMBIGMOM20</span> for 20% off ALL accessories! _(including NEW DiviDrawers_!)</b>
+
 ##### [Additional Mother's Day sale details](https://www.createroom.com/pages/mothers-day-2021-early-access?ref=YJvA8)
+
+\** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?ref=YJvA8 "DreamBox"), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dream Cart") myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
