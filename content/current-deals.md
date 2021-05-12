@@ -32,6 +32,8 @@ weight = 3
 
 ##### Code: **DREAMBIGMOM**
 
+Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?ref=YJvA8 "tote differences") here.
+
 ***
 
 #### $300 off pre-built (First 100 only)
@@ -80,7 +82,9 @@ weight = 3
 
 ***
 
-### Create Room [DiviDrawers](https://www.createroom.com/pages/drawer-detail?ref=YJvA8)
+### The NEW Create Room [DiviDrawers](https://www.createroom.com/pages/drawer-detail?ref=YJvA8)
+
+Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?ref=YJvA8 "tote differences") here.
 
 ![](/images/stylesgif_900x600_crop_center.gif)
 
