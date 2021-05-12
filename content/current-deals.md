@@ -58,7 +58,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 #### $250 off side kicks
 
-![](/images/img_0601.jpg)
+![](/images/img_0601.jpg)![](/images/gillespie-stacey4-27-21-32_crop.jpg)![](/images/gillespie-stacey4-27-21-58.jpg)
 
 #### $100 off [DreamCart](/dreambox/#dreamcart) and [Side Tables](/dreambox/#side-tables), and $50 off [Sew Station](/dreambox/#sew-station) when purchased with DreamBox
 
