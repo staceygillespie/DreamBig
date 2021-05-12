@@ -70,7 +70,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ![](/images/blue_900x600_crop_center.jpg)
 
-#### On your pre-order of this NEW furniture piece when purchased with your DreamBox. A pop up will appear when you add the DreamBox to your cart!
+#### On your pre-order of this NEW furniture piece when purchased with your DreamBox. A pop up will appear when you add the DreamBox to your cart!  Or use the code:LOVE to get $50 off the Cubby when you aren't buying a DreamBox.
 
 ![](/images/cubbies-together.png)
 
@@ -90,7 +90,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ![](/images/dividers_gif_900x600_crop_center.gif)
 
-#### Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order tomorrow @ 11 am MT
+#### Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order.
 
 <video width="640" height="480" controls>  
 <source src="/images/tote-stacks_1.mp4" type="video/mp4">  
