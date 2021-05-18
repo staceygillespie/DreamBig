@@ -7,7 +7,6 @@ type: page
 menu:
   main:
     weight: 2
-draft: true
 
 ---
 Feel free to contact me with any questions about my projects, my DreamBox, or anything else you might be interested in.  Contact me through this form and I will get back to you with the email provided or any other contact method you want to give me access to.
