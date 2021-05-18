@@ -8,3 +8,10 @@ tags = ["scene"]
 title = "Machine Embroidery"
 
 +++
+<body style="background-color:#fff1d9;">
+
+<span style="color:#000000;">
+
+Embroidering is fun!
+
+</span></body>
