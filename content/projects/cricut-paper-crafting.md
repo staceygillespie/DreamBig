@@ -8,6 +8,10 @@ tags = ["Cricut", " Vinyl", " Infusible Ink", " shadow box", " water bottles"]
 title = "Cricut / Paper Crafting"
 
 +++
+<body style="background-color:#fff1d9;">
+
+<span style="color:#000000;">
+
 ### I love making things with paper, wood, vinyl, felt, and infusible ink.
 
 #### I love 3D paper projects like this Peony Gift Box I made using a cutting file from [Dreaming Tree](https://3dsvg.com/shop/boxes-svg-files/peony-gift-box-svg-silhouette-cameo-cricut-explore/ "Peony Gift Box").
@@ -21,3 +25,5 @@ I used Cricut cardstock and pearl paper to make this gift box for a friend.  I w
 ###### I made this mermaid pillow for my grandson and my boys all humored me by taking part in this 2019 Christmas break activity where we all designed our own shirts.
 
 ![](/images/mermaid-pillow.JPG)![](/images/christmas-infusible-ink-shirts.jpeg)
+
+</span></body>

@@ -8,6 +8,10 @@ tags = ["watercolor", "brusho", "family", "painting"]
 title = " Watercolor"
 
 +++
+<body style="background-color:#fff1d9;">
+
+<span style="color:#000000;">
+
 #### **My journey to learn to watercolor.**
 
 ![](/images/2020-dreambox-may-14-17.jpg)
@@ -45,3 +49,5 @@ The [Blue Door]() a Paul Clark tutorial - Feb 2021
 [Spring Rabbit]() Let's Make Art tutorial - Feb 2021.
 
 I painted this with my sister and niece, but forgot to get a picture with all of us.
+
+</span></body>
