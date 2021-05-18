@@ -9,7 +9,7 @@ title = "DreamBox"
 weight = 4
 
 +++
-<body style="background-color:#c9d6ff;">
+<body style="background-color:#c9d6ff;color:#000000;">
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
