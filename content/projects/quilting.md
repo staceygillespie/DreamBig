@@ -8,4 +8,10 @@ tags = ["scene", "quilt ", "batik"]
 title = "Quilting"
 
 +++
+<body style="background-color:#fff1d9;">
+
+<span style="color:#000000;">
+
 You ever wanted to quilt?  It's addicting!
+
+</span></body>
