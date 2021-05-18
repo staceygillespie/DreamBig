@@ -66,19 +66,19 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ***
 
-#### Pre-built option for DreamBox
-
-![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
-
-#### Your DreamBox will be built in the factory and shipped to you!
-
-***
-
 #### Side kicks
 
 ![](/images/img_0601.jpg)![](/images/gillespie-stacey4-27-21-32_crop.jpg)![](/images/gillespie-stacey4-27-21-58.jpg)
 
 #### [DreamCart](/dreambox/#dreamcart), [Side Tables](/dreambox/#side-tables),  [Sew Station](/dreambox/#sew-station)
+
+***
+
+#### Pre-built option for DreamBox
+
+![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
+
+#### Your DreamBox will be built in the factory and shipped to you!
 
 ***
 
