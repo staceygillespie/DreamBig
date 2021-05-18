@@ -4,6 +4,10 @@ featured_image: "/images/dreambox-open.jpg"
 description: ''
 
 ---
+<body style="background-color:#fff1d9;">
+
+<span style="color:#000000;">
+
 **Why do we limit ourselves and not go after our dreams?**
 
 Often it's because we face seemingly unsurmountable barriers or we just don't believe in ourselves.
@@ -21,3 +25,5 @@ I love how you can have your DreamBox open when you need access to your material
 ![](/images/img_0310.jpg)
 
 ![](/images/gillespie-stacey4-27-21-39.jpg)
+
+</span></body>
