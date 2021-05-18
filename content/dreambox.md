@@ -17,7 +17,7 @@ weight = 4
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
-<img src="/images/dreambox-open.jpg" align="right" style=”margin: 0px 0px 0px 10px;” />
+<img src="/images/dreambox-open.jpg" align="right" />
 
 ## Why I Love My [DreamBox](https://www.createroom.com/?ref=YJvA8 "DreamBox")
 
