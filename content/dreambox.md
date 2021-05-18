@@ -9,7 +9,7 @@ title = "DreamBox"
 weight = 4
 
 +++
-<body style="background-color:#c9d6ff;">
+<body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">
 
