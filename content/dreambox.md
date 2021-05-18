@@ -9,7 +9,7 @@ title = "DreamBox"
 weight = 4
 
 +++
-<span style="background-color:#0000ff;">adfdfsdf</span>
+<body style="background-color:#0000ff;">
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
@@ -251,3 +251,5 @@ I have both side tables and love using both.
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
 ###### ** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?ref=YJvA8 "DreamBox"), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dream Cart") myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
+
+</body>
