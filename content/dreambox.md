@@ -21,6 +21,8 @@ aaaaa <span style="float: right;"><img src="/images/dreambox-open.jpg" /></span>
 
 ## Why I Love My [DreamBox](https://www.createroom.com/?ref=YJvA8 "DreamBox")
 
+Check out the NEW Products [Here](https://www.dreambigwithstacey.com/current-deals/ "Deal page").
+
 ### MOBILE ORGANIZATION
 
 * With your supplies in one mobile cabinet you can move them to a new location, if needed --to the living room, kitchen, a spare room, the garage or your basement.
@@ -249,6 +251,8 @@ I have both side tables and love using both.
 ### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
+
+Check out the NEW Products [Here](https://www.dreambigwithstacey.com/current-deals/ "Deal page").
 
 ###### ** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?ref=YJvA8 "DreamBox"), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dream Cart") myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
 
