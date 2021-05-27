@@ -11,9 +11,9 @@ weight = 3
 
 <span style="color:#000000;">
 
-### May 2021 Mother's Day Sale (ended)
+### 
 
-### Next sale: Coming soon!
+### 
 
 # New Products
 
