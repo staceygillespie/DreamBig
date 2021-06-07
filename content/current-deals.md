@@ -11,9 +11,9 @@ weight = 3
 
 <span style="color:#000000;">
 
-### 
+### The 4th of July sale details will be available soon!
 
-### 
+### And it's going to be a big sale!
 
 # New Products
 
