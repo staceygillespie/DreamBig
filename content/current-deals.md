@@ -13,7 +13,7 @@ weight = 3
 
 ### The 4th of July sale details will be available soon!
 
-#### ---And it's going to be a big sale!
+#### ---   And it's going to be a big sale!
 
 # New Products
 
