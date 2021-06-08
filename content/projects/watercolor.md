@@ -14,6 +14,12 @@ title = " Watercolor"
 
 #### **My journey to learn to watercolor.**
 
+I usually use [Sennelier](https://shrsl.com/30jli "Sennelier half pans") half pans (and their  [tube paints](https://shrsl.com/30jlp "Sennelier tube paints") to refill them) and [Winsor and Newton](https://shrsl.com/30jlt "WN tube") tube paints.  When I paint with friends and family we usually paint with Dandelion paints from Let's Make Art.  
+
+I use  [Princeton Heritage](https://shrsl.com/30jm1 "Princeton brushes") Series 4050 Synthetic Sable Brushes and [Arches](https://shrsl.com/30jm4 "Arches pad") Watercolor paper.  when we use Dandeion paitns we use [Canson XL]() watercolor paper.
+
+The first set I bought is the Sennelier Artist's Set of 12 + 6 FREE half pan set with metal case.  After watercolor painting for 2 years I have now purchased the Artists' Watercolors, Set of 48 with metal case.
+
 ![](/images/2020-dreambox-may-14-17.jpg)
 
 ![](/images/tuscan-landscape-geoff-kersey-april-2021.jpeg)
