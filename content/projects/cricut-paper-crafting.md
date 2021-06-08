@@ -22,7 +22,7 @@ I used [Cricut](https://shrsl.com/30jkf "Cricut home page") [cardstock](https://
 
 #### I love Cricut's [infusible ink](https://shrsl.com/30dc0 "Infusible ink").
 
-#### I made this mermaid pillow for my grandson and my boys all humored me by taking part in this 2019 Christmas break activity where we all designed our own [shirts](https://shrsl.com/30jkk "blank shirts").  Some of used infusible ink and some the [infusible ink pens](https://shrsl.com/30jl6 "infusible ink pens").  you can have your Cricut machine draw your image for you using their infusible ink pens!
+#### I made this mermaid pillow using infusible ink [transfer sheets](https://shrsl.com/30jnx "transfer sheets") and design space images for my grandson.  My sons all humored me by taking part in this 2019 Christmas break activity where we all designed our own [shirts](https://shrsl.com/30jkk "blank shirts").  Some of used infusible ink and some the [infusible ink pens](https://shrsl.com/30jl6 "infusible ink pens").  you can have your [Cricut](https://shrsl.com/30jkf "home") machine draw your image for you using their infusible ink pens!
 
 ###### **I'm sharing what I love to make and have provided some links for where you can buy the same items.  I have not received any of these products for free, but if you use any of the links provided I get a small commission from your purchase.
 
