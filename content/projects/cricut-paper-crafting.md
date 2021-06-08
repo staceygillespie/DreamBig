@@ -16,7 +16,7 @@ title = "Cricut / Paper Crafting"
 
 #### I love 3D paper projects like this Peony Gift Box I made using a cutting file from [Dreaming Tree](https://3dsvg.com/shop/boxes-svg-files/peony-gift-box-svg-silhouette-cameo-cricut-explore/ "Peony Gift Box").
 
-I used [Cricut](https://shrsl.com/30jkf "Cricut home page") [cardstock](https://shrsl.com/30jl0 "cardstock") and [pearl](https://shrsl.com/30jky "pearl paper") paper to make this gift box for a friend.  I was able to use my Stampin' Up! inks to ink the edges of the flower. I was a Stampin' Up! demonstrator from 1999-2006.  I don't stamp much anymore, but I still love it!
+I used [Cricu](https://shrsl.com/30jt6 "Cricut store sales")[t](https://shrsl.com/30jkf "Cricut home page") [cardstock](https://shrsl.com/30jl0 "cardstock") and [pearl](https://shrsl.com/30jky "pearl paper") paper to make this gift box for a friend.  I was able to use my Stampin' Up! inks to ink the edges of the flower. I was a Stampin' Up! demonstrator from 1999-2006.  I don't stamp much anymore, but I still love it!
 
 ![](/images/img_0145.JPEG)
 
