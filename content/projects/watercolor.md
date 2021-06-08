@@ -16,7 +16,7 @@ title = " Watercolor"
 
 ![](/images/2020-dreambox-may-14-17.jpg)
 
-I usually use [Sennelier](https://shrsl.com/30jli "Sennelier half pans") half pans (and their [tube paints](https://shrsl.com/30jlp "Sennelier tube paints") to refill them) as well as [Winsor and Newton](https://shrsl.com/30jlt "WN tube") tube paints.  I find that I get better results when I use the professional paints and paper.  When I am painting with friends and family we usually paint with Dandelion paints from [Let's Make Art](https://www.letsmakeart.com/products/dandelion-paint-co-15ml-watercolors "Dandelion Paints") since it's easy to share and is more economical.
+I usually use [Sennelier](https://shrsl.com/30jli "Sennelier half pans") half pans (and their [tube paints](https://shrsl.com/30jlp "Sennelier tube paints") to refill them) as well as [Winsor and Newton](https://shrsl.com/30jlt "WN tube") tube paints.  I find that I get better results when I use the professional paints and paper.  When I am painting with friends and family we usually paint with Dandelion paints from [Let's Make Art](https://www.letsmakeart.com/products/dandelion-paint-co-15ml-watercolors "Dandelion Paints") since they are easy to share and is more economical.
 
 I use [Princeton Heritage](https://shrsl.com/30jm1 "Princeton brushes") Series 4050 Synthetic Sable Brushes and [Arches](https://shrsl.com/30jm4 "Arches pad") Watercolor paper.  when we use Dandelion paints we use [Canson XL]() watercolor paper.
 
