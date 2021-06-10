@@ -18,7 +18,7 @@ title = " Watercolor"
 
 I usually use [Sennelier](https://shrsl.com/30jli "Sennelier half pans") half pans (and their [tube paints](https://shrsl.com/30jlp "Sennelier tube paints") to refill them) as well as [Winsor and Newton](https://shrsl.com/30jlt "WN tube") tube paints.  I find that I get better results when I use the professional paints and paper.  When I paint with friends and family we usually paint with Dandelion Co. paints from [Let's Make Art](https://prz.io/JaoNveF8 "LMA friend referral") since they are easy to share and they are more economical.
 
-I use [Princeton Heritage](https://shrsl.com/30jm1 "Princeton brushes") Series 4050 Synthetic Sable Brushes and [Arches](https://shrsl.com/30jm4 "Arches pad") Watercolor paper.  When we use Dandelion Co. liquid watercolor paints we use [Canson XL]() watercolor paper.
+I use [Princeton Heritage](https://shrsl.com/30jm1 "Princeton brushes") Series 4050 Synthetic Sable Brushes and [Arches](https://shrsl.com/30jm4 "Arches pad") Watercolor paper.  When I invite people to paint with me we use Dandelion Co. liquid watercolor paints and we use [Canson XL]() watercolor paper.
 
 The first set I bought is the [Sennelier](https://shrsl.com/30jli "Sennelier half pan") [Artist's Set of 12 + 6 FREE](https://shrsl.com/30ojy "12-6free") half pan set with metal case.  After painting for 2 years I have now purchased the Artists' Watercolor Set of 48 with metal case. I don't need that many colors since I can mix the primaries to get any color I need, but I love trying new colors.  I treasure my small discoveries when I'm creating and playing around with  paints.
 
