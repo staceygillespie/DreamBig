@@ -14,7 +14,7 @@ title = "Cricut / Paper Crafting"
 
 ### I love making things with paper, wood, vinyl, felt, and infusible ink.
 
-See the brand [NEW Cricut machines](https://shrsl.com/30orw "new-machines-3") that are for sale!  they can cut 2 times faster and are able to cut with a mat when using [Smart material](https://shrsl.com/30osa "smart materials")s.
+See the brand [NEW Cricut machines](https://shrsl.com/30orw "new-machines-3") that are for sale!  They can cut 2 times faster and are able to cut with a mat when using [Smart material](https://shrsl.com/30osa "smart materials")s.
 
 #### I love 3D paper projects like this Peony Gift Box I made using a cutting file from [Dreaming Tree](https://3dsvg.com/shop/boxes-svg-files/peony-gift-box-svg-silhouette-cameo-cricut-explore/ "Peony Gift Box").
 
