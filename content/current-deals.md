@@ -17,7 +17,7 @@ June 25th at 1am MT- July 7th at midnight.  It's the BIGGEST discount they've ev
 
 * **15% off the DreamBox**  -- Use the code: [**DREAMBIGSTAR**](https://www.createroom.com/?ref=YJvA8)
 * $100 off the NEW DiviDrawers for first 300 orders only!
-* **20% off Accessories, Dream Cart, Sew Station, & Side Tables**  
+* **20% off Accessories, Dream Cart, Sew Station, & Side Tables**
 
   \--Use the code: [**DREAMBIGFOURTH**](https://www.createroom.com/collections/furniture?ref=YJvA8)
 * **15% off Cubby**-- Use the code: [**DREAMBIGCELEBRATE**](https://www.createroom.com/products/cubby?ref=YJvA8)
@@ -25,6 +25,8 @@ June 25th at 1am MT- July 7th at midnight.  It's the BIGGEST discount they've ev
 **Canada:** (Biggest discount ever)!
 
 **15% off EVERYTHING!** -- Use the code:
+
+**If your order is over $1000** and you use my discount codes you can send me your order number and I will personally send you either a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") or $10 gift card to Amazon. *When you use my code or links Create Room gives me a little money.
 
 ![](/images/cr_4thofjuly-4032-2.jpg)
 
