@@ -36,9 +36,9 @@ It's the BIGGEST discount they've ever had a DreamBox!!**!![](/images/affiliate-
 
 #### NEW [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
 
-![](/images/blue_900x600_crop_center.jpg)
+![](/images/blue_900x600_crop_center.jpg)![](/images/cr_4thofjuly-4117-1.jpg)
 
-#### Pre-order the NEW Cubby!
+#### Pre-order the NEW Cubby for 15% off.  Use the code: DREAMBIGCELEBRATE
 
 ![](/images/cubbies-together.png)
 
