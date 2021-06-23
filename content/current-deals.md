@@ -15,17 +15,17 @@ weight = 3
 
 June 25th at 1am MT- July 7th at midnight.
 
-###### It's the BEST sale they've ever had on a DreamBox!!
+###### It's the BIGGEST discount they've ever had a DreamBox!!
 
-**USA: (Biggest DreamBox discount ever)!**
+**15% off the DreamBox**  -- Use the code: [**DREAMBIGSTAR**](https://www.createroom.com/?ref=YJvA8)
 
-* **15% off the DreamBox**  -- Use the code: [**DREAMBIGSTARS**](https://www.createroom.com/?ref=YJvA8)
-* 
-  * $100 off the NEW DiviDrawers for first 300 orders only!
+* $100 off the NEW DiviDrawers for first 300 orders only!
 
 **EXCLUSIVE for current DreamBox Owners:**
 
-* 20% off Accessories, Dream Cart, Sew Station, & Side Tables  --Use the code: [**DREAMBIGFOURTH**](https://www.createroom.com/collections/furniture?ref=YJvA8)
+* 20% off Accessories, Dream Cart, Sew Station, & Side Tables  
+
+                           --Use the code: [**DREAMBIGFOURTH**](https://www.createroom.com/collections/furniture?ref=YJvA8)
 * 15% off Cubby -- Use the code: [**DREAMBIGCELEBRATE**](https://www.createroom.com/products/cubby?ref=YJvA8)
 
 **Canada:** (Biggest discount ever)!
