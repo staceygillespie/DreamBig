@@ -17,7 +17,7 @@ June 25th at 1am MT- July 7th at midnight
 
 _It's the BIGGEST discount they've ever had a DreamBox!!_**![](/images/affiliate-graphic-1.jpg)**
 
-* **15% off the DreamBox**  -- Use the code: [**DREAMBIGSTARS**](https://www.createroom.com/?ref=YJvA8)
+* **15% off the DreamBox**  -- Use the code: [**DREAMBIGSTARS**](https://www.createroom.com/discount/DREAMBIGSTARS)
 * $100 off the NEW DiviDrawers for first 300 orders only!
 * **20% off Accessories, Dream Cart, Sew Station, & Side Tables**
 
