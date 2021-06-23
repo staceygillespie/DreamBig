@@ -72,7 +72,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 # Other products available
 
-### DiviDrawers or InView totes can be chosen for the following
+### **DiviDrawers** or **InView** totes can be chosen for the DreamBox, DreamCart, Sew Station or Cubby
 
 #### $100 off [DreamBox](/dreambox) anytime with my code!
 
