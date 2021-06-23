@@ -40,7 +40,9 @@ _It's the BIGGEST discount they've ever had a DreamBox!!_**![](/images/affiliate
 
 ![](/images/blue_900x600_crop_center.jpg)![](/images/cr_4thofjuly-4117-1.jpg)
 
-#### Pre-order the [NEW Cubby]() for 15% off.                                                            _Use the code:_[ DREAMBIGCELEBRATE]()
+#### Pre-order the [NEW Cubby]() for 15% off. 
+
+#### _Use the code:_[ DREAMBIGCELEBRATE]()
 
 ![](/images/cubbies-together.png)
 
