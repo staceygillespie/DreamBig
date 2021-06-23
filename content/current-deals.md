@@ -11,9 +11,11 @@ weight = 3
 
 <span style="color:#000000;">
 
-### The 4th of July sale details will be available soon!
+### The 4th of July sale starts this Friday 
 
-#### ---   And it's going to be a big sale!
+### June 25th at 1am MT- July 7th at midnight.
+
+#### It's the BEST sale they've ever had on a DreamBox!!
 
 # New Products
 
