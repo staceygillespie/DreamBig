@@ -13,9 +13,7 @@ weight = 3
 
 ## The 4th of July sale starts this Friday!
 
-June 25th at 1am MT- July 7th at midnight.  
-
-It's the BIGGEST discount they've ever had a DreamBox!!**!![](/images/affiliate-graphic-1.jpg)**
+June 25th at 1am MT- July 7th at midnight.                                                                                                _It's the BIGGEST discount they've ever had a DreamBox!!_**![](/images/affiliate-graphic-1.jpg)**
 
 * **15% off the DreamBox**  -- Use the code: [**DREAMBIGSTARS**](https://www.createroom.com/?ref=YJvA8)
 * $100 off the NEW DiviDrawers for first 300 orders only!
@@ -24,7 +22,7 @@ It's the BIGGEST discount they've ever had a DreamBox!!**!![](/images/affiliate-
   \--Use the code: [**DREAMBIGFOURTH**](https://www.createroom.com/collections/furniture?ref=YJvA8)
 * **15% off Cubby**-- Use the code: [**DREAMBIGCELEBRATE**](https://www.createroom.com/products/cubby?ref=YJvA8)
 
-**Canada:** (Biggest discount ever)!
+**Canada:** _(Biggest discount ever)!_
 
 **15% off EVERYTHING!** -- Use the code:
 
@@ -38,7 +36,7 @@ It's the BIGGEST discount they've ever had a DreamBox!!**!![](/images/affiliate-
 
 ![](/images/blue_900x600_crop_center.jpg)![](/images/cr_4thofjuly-4117-1.jpg)
 
-#### Pre-order the NEW Cubby for 15% off.  Use the code: DREAMBIGCELEBRATE
+#### Pre-order the [NEW Cubby]() for 15% off.                                                            _Use the code:_[ DREAMBIGCELEBRATE]()
 
 ![](/images/cubbies-together.png)
 
@@ -56,7 +54,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ![](/images/stylesgif_900x600_crop_center.gif)
 
-![](/images/dividers_gif_900x600_crop_center.gif)
+![](/images/capture.JPG)
 
 #### Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order.
 
