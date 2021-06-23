@@ -26,7 +26,7 @@ June 25th at 1am MT- July 7th at midnight.                                      
 
 **15% off EVERYTHING!** -- Use the code:
 
-**IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
+###### **IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
 
 ###### **If your order is over $1000 and you use my codes.**  Let me know your order number and I will send you a $10 gift card to  Send me your order number and I will personally send you either a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") or a $10 gift card to Amazon.                          _*When you use my code or links Create Room gives me a little money._
 
