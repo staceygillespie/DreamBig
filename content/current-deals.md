@@ -26,9 +26,11 @@ June 25th at 1am MT- July 7th at midnight.                                      
 
 **15% off EVERYTHING!** -- Use the code:
 
-**If your order is over $1000** and you use my discount codes you can send me your order number and I will personally send you either a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") or $10 gift card to Amazon. *When you use my code or links Create Room gives me a little money.
+**IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
 
-![](/images/cr_4thofjuly-4032-2.jpg)
+###### **If your order is over $1000 and you use my codes.**  Let me know your order number and I will send you a $10 gift card to  Send me your order number and I will personally send you either a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") or a $10 gift card to Amazon.                          _*When you use my code or links Create Room gives me a little money._
+
+![](/images/cr_4thofjuly-4032-2.jpg)![](/images/cr_4thofjuly-3467.jpg)
 
 # New Products
 
@@ -49,6 +51,8 @@ June 25th at 1am MT- July 7th at midnight.                                      
 ***
 
 ### The NEW Create Room [DiviDrawers](https://www.createroom.com/pages/drawer-detail?ref=YJvA8)
+
+You can choose which side of the DiviDrawer you'd like to display!  Keep it a **solid** white, sage green or mineral blue- or- choose the **clear** side.  Do you prefer seeing your supplies or covering them with a fun design from using a decorativepaper you love?
 
 Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?ref=YJvA8 "tote differences") here.
 
