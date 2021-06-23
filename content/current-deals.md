@@ -20,7 +20,8 @@ June 25th at 1am MT- July 7th at midnight.
 **USA: (Biggest DreamBox discount ever)!**
 
 * **15% off the DreamBox**  -- Use the code: [**DREAMBIGSTARS**](https://www.createroom.com/?ref=YJvA8)
-* + $100 off the NEW DiviDrawers for first 300 orders only!
+* 
+  * $100 off the NEW DiviDrawers for first 300 orders only!
 
 **EXCLUSIVE for current DreamBox Owners:**
 
@@ -29,7 +30,7 @@ June 25th at 1am MT- July 7th at midnight.
 
 **Canada:** (Biggest discount ever)!
 
-**15% off EVERYTHING! --Use the code:** 
+**15% off EVERYTHING! --Use the code:**
 
 ![](/images/cr_4thofjuly-4032-2.jpg)
 
