@@ -25,12 +25,12 @@ June 25th at 1am MT- July 7th at midnight.
 
 * **20% off Accessories, Dream Cart, Sew Station, & Side Tables**
 
-                           --Use the code: [**DREAMBIGFOURTH**]()
+                           --Use the code: [**DREAMBIGFOURTH**](https://www.createroom.com/collections/furniture?ref=YJvA8)
 * **15% off Cubby**-- Use the code: [**DREAMBIGCELEBRATE**](https://www.createroom.com/products/cubby?ref=YJvA8)
 
 **Canada:** (Biggest discount ever)!
 
-**15% off EVERYTHING! --Use the code:**
+**15% off EVERYTHING!** -- Use the code:
 
 ![](/images/cr_4thofjuly-4032-2.jpg)
 
