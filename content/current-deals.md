@@ -13,7 +13,9 @@ weight = 3
 
 ## The 4th of July sale starts this Friday!
 
-> June 25th at 1am MT- July 7th at midnight.                                                                                                _It's the BIGGEST discount they've ever had a DreamBox!!_**![](/images/affiliate-graphic-1.jpg)**
+June 25th at 1am MT- July 7th at midnight
+
+_It's the BIGGEST discount they've ever had a DreamBox!!_**![](/images/affiliate-graphic-1.jpg)**
 
 * **15% off the DreamBox**  -- Use the code: [**DREAMBIGSTARS**](https://www.createroom.com/?ref=YJvA8)
 * $100 off the NEW DiviDrawers for first 300 orders only!
