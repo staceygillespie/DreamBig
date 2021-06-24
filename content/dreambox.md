@@ -15,7 +15,7 @@ weight = 4
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
-There is a 4th of July Sale June 25- July 5th 2021.
+There is a 4th of July Sale ON now!  June 25 - July 5th 2021.
 
 Check out the discounts and find my SALE codes [here](https://www.dreambigwithstacey.com/current-deals/).
 
@@ -148,7 +148,7 @@ I just got my DreamCart and my son put it together.  Stay tuned for how I like a
 
 ![](/images/ben-building-dreamcart.jpeg)![](/images/dreamcart.JPG)
 
-My [DreamCart](https://www.createroom.com/products/dream-cart "DreamCart") looks so cute when I decorated the bins! 
+My [DreamCart](https://www.createroom.com/products/dream-cart "DreamCart") looks so cute when I decorated the bins!
 
 I love using my DreamCart as extra table space when people come to watercolor with me. I can put it in front of the TV or use it in front of our computer when we are following a tutorial.  It also makes a handy table for playing games!
 
