@@ -146,7 +146,11 @@ Reasons I bought my Sew Station:
 
 I just got my DreamCart and my son put it together.  Stay tuned for how I like and use it.
 
-![](/images/ben-building-dreamcart.jpeg)![](/images/dreamcart.png)
+![](/images/ben-building-dreamcart.jpeg)![](/images/dreamcart.JPG)
+
+My [DreamCart](https://www.createroom.com/products/dream-cart "DreamCart") looks so cute when I decorated the bins! 
+
+I love using my DreamCart as extra table space when people come to watercolor with me. I can put it in front of the TV or use it in front of our computer when we are following a tutorial.  It also makes a handy table for playing games!
 
 ***
 
