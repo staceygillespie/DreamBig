@@ -15,7 +15,7 @@ weight = 4
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
-There is a 4th of July Sale ON now!  June 25 - July 5th 2021.
+There is a 4th of July Sale on NOW!  June 25 - July 5th 2021.
 
 Check out the discounts and find my SALE codes [here](https://www.dreambigwithstacey.com/current-deals/).
 
