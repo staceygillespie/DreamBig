@@ -13,7 +13,7 @@ weight = 3
 
 ## The 4th of July sale starts this Friday!
 
-June 25th at 11 am MT- July 7th at midnight
+June 25th at 11 am MT- July 5th at midnight
 
 _It's the BIGGEST discount they've ever had a DreamBox!!_**![](/images/affiliate-graphic-1.jpg)**
 
