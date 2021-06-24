@@ -146,7 +146,7 @@ Reasons I bought my Sew Station:
 
 I just got my DreamCart and my son put it together.  Stay tuned for how I like and use it.
 
-![](/images/ben-building-dreamcart.jpeg)
+![](/images/ben-building-dreamcart.jpeg)![](/images/dreamcart.png)
 
 ***
 
