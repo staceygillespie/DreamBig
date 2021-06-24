@@ -26,7 +26,7 @@ _It's the BIGGEST discount they've ever had a DreamBox!!_**![](/images/affiliate
 
 **Canada:** _(Biggest discount ever)!_
 
-**15% off EVERYTHING!** -- Use the code: [DREAMBIGCANANDA](https://ca.createroom.com/discount/DREAMBIGCANADA)
+**15% off EVERYTHING!** -- Use the code: [**DREAMBIGCANANDA**](https://ca.createroom.com/discount/DREAMBIGCANADA)
 
 ###### **IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
 
