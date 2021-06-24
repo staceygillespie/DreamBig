@@ -30,7 +30,7 @@ _It's the BIGGEST discount they've ever had a DreamBox!!_**![](/images/affiliate
 
 ###### **IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
 
-###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to  [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") or a $10 gift card to Amazon.                          _*When you use my code or links Create Room gives me a little money._
+###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
 
 ![](/images/cr_4thofjuly-4032-2.jpg)![](/images/cr_4thofjuly-3467.jpg)
 
