@@ -258,6 +258,10 @@ I have both side tables and love using both.
 
 Check out the NEW Products [Here](https://www.dreambigwithstacey.com/current-deals/ "Deal page").
 
+###### **IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
+
+###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
+
 ###### ** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?ref=YJvA8 "DreamBox"), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dream Cart") myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
 
 </span></body>
