@@ -11,22 +11,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-## The 4th of July sale starts this Friday!
-
-June 25th at 11 am MT- July 5th at midnight
-
-_It's the BIGGEST discount they've ever had a DreamBox!!_**![](/images/affiliate-graphic-1.jpg)**
-
-* **15% off the DreamBox**  -- Use the code: [**DREAMBIGSTARS**](https://www.createroom.com/discount/DREAMBIGSTARS)
-* $100 off the NEW DiviDrawers for first 300 orders only!
-* **20% off Accessories, Dream Cart, Sew Station, & Side Tables**
-
-  \--Use the code: [**DREAMBIGFOURTH**](https://www.createroom.com/collections/furniture?ref=YJvA8)
-* **15% off Cubby**-- Use the code: [**DREAMBIGCELEBRATE**](https://www.createroom.com/products/cubby?ref=YJvA8)
-
-**Canada:** _(Biggest discount ever)!_
-
-**15% off EVERYTHING!** -- Use the code: [**DREAMBIGCANANDA**](https://ca.createroom.com/discount/DREAMBIGCANADA)
+## No sale on currently.
 
 ###### **IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
 
