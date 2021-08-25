@@ -11,7 +11,9 @@ weight = 3
 
 <span style="color:#000000;">
 
-## No sale on currently.
+![](/images/36903c1e-93bf-4320-84b8-79114c79c12a.jpg)
+
+## Use the code <span style="color:#ff5a47; size:42">**CODE**</span> for $200 off!
 
 ###### **IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
 
