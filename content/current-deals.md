@@ -11,11 +11,11 @@ weight = 3
 
 <span style="color:#000000;">
 
-![](/images/36903c1e-93bf-4320-84b8-79114c79c12a.jpg)
+![](/images/img_0906.jpg)
 
-## Use my exclusive [link](https://glnk.io/6zwk/staceycarrgillespie) for $200 off!
+### <b>Use my exclusive code  <span style="color:#bf6667;font-size:xx-large;">DREAMBIGGIFT</span> to save $200 or £200! <span style="font-size:small;">(ends 9/3)</span></b>
 
-###### **IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
+### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
 
@@ -30,8 +30,6 @@ weight = 3
 ![](/images/blue_900x600_crop_center.jpg)![](/images/cr_4thofjuly-4117-1.jpg)
 
 #### Pre-order the [NEW Cubby]() for 15% off.
-
-#### _Use the code:_[ DREAMBIGCELEBRATE]()
 
 ![](/images/cubbies-together.png)
 
