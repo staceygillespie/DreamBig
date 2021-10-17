@@ -11,7 +11,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-#### No sale on currently.
+#### No sale on currently. Stay tuned to read about the Black Friday deals.  I will have discount codes for you to use during the sale.
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
