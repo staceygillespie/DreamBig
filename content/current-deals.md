@@ -41,7 +41,7 @@ NEW [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
 
 ![](/images/cubbies-together.png)
 
-#### Can be put side-by side or stacked. It only comes in white.
+#### Can be put side-by side or stacked.  Currently it only comes in white.
 
 <video width="640" height="480" controls>  
 <source src="/images/cubby-colors.mp4" type="video/mp4">  
@@ -95,13 +95,13 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ![](/images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
 
-### [Dream Cart]()
+### [DreamCart](/dreambox/#dreamcart)
 
-#### [DreamCart](/dreambox/#dreamcart), [Side Tables](/dreambox/#side-tables),  [Sew Station](/dreambox/#sew-station)
+![](/images/dreamcart.JPG)
 
 ***
 
-#### Pre-built option for DreamBox
+#### Pre-built option for DreamBox.
 
 ![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
