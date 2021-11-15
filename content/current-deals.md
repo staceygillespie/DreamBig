@@ -17,7 +17,7 @@ weight = 3
 
 #### **![](/images/2-11.jpg)  **
 
-####  **15% off EVERYTHING on the site!!** I will have discount codes for you to use during the sale. I will post them here soon.
+####  **15% off EVERYTHING on the site when you use the code: DREAMBIGMASSIVEJOY**
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
