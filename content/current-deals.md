@@ -13,7 +13,7 @@ weight = 3
 
 #### **BLACK FRIDAY SALE  November 19-29, 2021**
 
-###### _Starts this Friday_. Get 2 hours early access (10am MST) to the sale using my links.
+###### _Starts this Friday_. Get 2 hours early access (10am MST) to the sale using my links.  Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 #### **![](/images/2-11.jpg)  **
 
