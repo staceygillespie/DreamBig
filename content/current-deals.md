@@ -83,7 +83,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ***
 
-#### Side kicks
+#### **Side kicks** choose the DiviDrawers or InView totes
 
 [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station")
 
