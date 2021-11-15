@@ -27,13 +27,13 @@ AND **_15% off all accessories_**.  Find ALL accessories [here](https://www.crea
 
 Get financing as low as $52 a month [here](https://www.createroom.com/pages/financing?refYvA8 "Financing").
 
-![](/images/bf_financing.jpg)[Download File]( "Download File")
+![](/images/bf_financing.jpg)
 
 # New Products
 
 ![/images/new-drawers-cubbyjpg.JPG](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/new-drawers-cubbyjpg.JPG)
 
-NEW [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
+### [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
 
 ![](/images/cr_4thofjuly-4117-1.jpg)
 
@@ -83,29 +83,31 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ***
 
-#### **Side kicks** choose the DiviDrawers or InView totes
+### **Side kicks** choose the DiviDrawers or InView totes
 
-[Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station")
+### [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station")
 
 ![](/images/gillespie-stacey4-27-21-58.jpg)
 
 ![](/images/img_0601.jpg "Sew Station")
 
-[Side Tables](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8)
+### [Side Tables](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8)
 
 ![](/images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
 
-### [DreamCart](/dreambox/#dreamcart)
+### [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
 ![](/images/dreamcart.JPG)
 
 ***
 
-#### Pre-built option for DreamBox.
+#### there is a Pre-built option for DreamBox! 
 
 ![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
 #### Your DreamBox will be built in the factory and shipped to you!
+
+![](/images/prebuilt-dreambox.JPG)
 
 ***
 
