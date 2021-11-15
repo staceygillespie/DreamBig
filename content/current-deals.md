@@ -35,11 +35,9 @@ Get financing as low as $52 a month [here](https://www.createroom.com/pages/fina
 
 ### [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
 
-![](/images/cr_4thofjuly-4117-1.jpg)
+![](/images/cubby.png)
 
 #### ![](/images/cr_4thofjuly-4032-2.jpg)
-
-![](/images/cubbies-together.png)
 
 #### Can be put side-by side or stacked.  Currently it only comes in white.
 
@@ -52,6 +50,8 @@ Get financing as low as $52 a month [here](https://www.createroom.com/pages/fina
 ### The NEW Create Room [DiviDrawers](https://www.createroom.com/pages/drawer-detail?ref=YJvA8)
 
 You can choose which side of the DiviDrawer you'd like to display!  Keep it a **solid** white or choose the **clear** side.  Do you prefer seeing your supplies or covering them with a fun design from using a decorative paper you love?
+
+![](/images/fb-live-photo-1.png)
 
 ![](/images/cr_4thofjuly-3467.jpg)
 
@@ -83,9 +83,9 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ***
 
-#### Choose the DiviDrawers or InView totes with any of these Side Kicks:
-
 ### [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station")
+
+![](/images/ss-ad.jpg)
 
 ![](/images/gillespie-stacey4-27-21-58.jpg)
 
@@ -96,6 +96,8 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 ![](/images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
 
 ### [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
+
+![](/images/dc-ad.jpg)
 
 ![](/images/dreamcart.JPG)
 
