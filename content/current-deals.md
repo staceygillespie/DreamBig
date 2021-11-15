@@ -11,10 +11,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-#### BLACK FRIDAY SALE  November 19-29, 2021**  
-![](/images/2-11.jpg)   **
-
-### **15% off EVERYTHING on the site!!**
+#### **BLACK FRIDAY SALE  November 19-29, 2021**                               Get 2 hours early access to the sale using my links.**![](/images/2-11.jpg)   15% off EVERYTHING on the site!!**
 
 I will have discount codes for you to use during the sale. I will post them here soon.
 
@@ -24,11 +21,11 @@ I will have discount codes for you to use during the sale. I will post them here
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
 
-Also FREE new products for the first 1000 DreamBox orders  
+Also **FREE new products** for the first 1000 DreamBox orders. 
 
-AND 15% off all accessories.  Find ALL accessories [here](https://www.createroom.com/collections/accessories/?ref=YJvA8 "Accessories").
+AND **_15% off all accessories_**.  Find ALL accessories [here](https://www.createroom.com/collections/accessories/?ref=YJvA8 "Accessories").
 
-![](/images/3-9.jpg)![](/images/4-7.jpg)
+![](/images/black-friday-2021.JPG)
 
 Get financing as low as $52 a month [here](https://www.createroom.com/pages/financing?refYvA8 "Financing"). 
 
