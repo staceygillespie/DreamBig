@@ -11,7 +11,11 @@ weight = 3
 
 <span style="color:#000000;">
 
-#### No sale on currently. Stay tuned to read about the Black Friday deals.  I will have discount codes for you to use during the sale.
+#### BLACK FRIDAY SALE 2021
+
+15% OFF everything on the site!!
+
+#### I will have discount codes for you to use during the sale.
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
@@ -29,7 +33,7 @@ weight = 3
 
 ![](/images/blue_900x600_crop_center.jpg)![](/images/cr_4thofjuly-4117-1.jpg)
 
-#### Pre-order the [NEW Cubby]() for 15% off.
+#### The [NEW Cubby]().
 
 ![](/images/cubbies-together.png)
 
