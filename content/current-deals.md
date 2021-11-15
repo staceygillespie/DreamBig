@@ -11,7 +11,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-#### **BLACK FRIDAY SALE  November 19-29, 2021**   
+#### **BLACK FRIDAY SALE  November 19-29, 2021**
 
 ###### _Starts this Friday_. Get 2 hours early access (10am MST) to the sale using my links.
 
@@ -37,6 +37,8 @@ Get financing as low as $52 a month [here](https://www.createroom.com/pages/fina
 
 # New Products
 
+![](/images/3-9.jpg)
+
 ![/images/new-drawers-cubbyjpg.JPG](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/new-drawers-cubbyjpg.JPG)
 
 ### [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
@@ -45,7 +47,7 @@ Get financing as low as $52 a month [here](https://www.createroom.com/pages/fina
 
 #### ![](/images/cr_4thofjuly-4032-2.jpg)
 
-#### More than one cubby be put side-by side or stacked.
+#### More than one cubby can be placed side-by-side or stacked.
 
 <video width="640" height="480" controls>  
 <source src="/images/cubby-colors.mp4" type="video/mp4">  
