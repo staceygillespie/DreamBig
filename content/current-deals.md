@@ -13,7 +13,7 @@ weight = 3
 
 #### **BLACK FRIDAY SALE  November 19-29, 2021**   
 
-#### _Starts this Friday_.  Get 2 hours early access (10am MST) to the sale using my links.
+###### _Starts this Friday_. Get 2 hours early access (10am MST) to the sale using my links.
 
 #### **![](/images/2-11.jpg)  **
 
