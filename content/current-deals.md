@@ -39,7 +39,7 @@ Get financing as low as $52 a month [here](https://www.createroom.com/pages/fina
 
 #### ![](/images/cr_4thofjuly-4032-2.jpg)
 
-#### Can be put side-by side or stacked.  Currently it only comes in white.
+#### More than one cubby be put side-by side or stacked.  
 
 <video width="640" height="480" controls>  
 <source src="/images/cubby-colors.mp4" type="video/mp4">  
@@ -73,9 +73,9 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ### **DiviDrawers** or **InView** totes can be chosen for the DreamBox, DreamCart, Sew Station or Cubby
 
-#### $100 off [DreamBox](/dreambox) anytime with my code!
+#### $100 off [DreamBox](/dreambox) anytime with my code!  Upo to $500 off during the Black Friday sale!
 
-#### ![](/images/choose-totes-2.jpg)
+[db-ad-video.mp4](/images/db-ad-video.mp4 "db-ad-video.mp4")
 
 ##### Code: **DREAMBIG**
 
