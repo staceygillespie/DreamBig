@@ -17,7 +17,7 @@ weight = 3
 
 #### **![](/images/2-11.jpg)  **
 
-### **15% off EVERYTHING on the site when you use the code: DREAMBIGMASSIVEJOY**
+### **15% off EVERYTHING including a Dreambox: DREAMBIGMASSIVEJOY**
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
@@ -30,6 +30,10 @@ Also **FREE new products** for the first 1000 DreamBox orders.
 AND **_15% off all accessories_**.  Find ALL accessories [here](https://www.createroom.com/collections/accessories/?ref=YJvA8 "Accessories").
 
 ![](/images/black-friday-2021.JPG)
+
+#### Already own a DreamBox?  
+
+###### Get 20% off everything else using the code: DREAMBIGSECRET
 
 Get financing as low as $52 a month [here](https://www.createroom.com/pages/financing?refYvA8 "Financing").
 
