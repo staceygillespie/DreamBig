@@ -11,7 +11,13 @@ weight = 3
 
 <span style="color:#000000;">
 
-#### **BLACK FRIDAY SALE  November 19-29, 2021**                               Get 2 hours early access to the sale using my links.**![](/images/2-11.jpg)   15% off EVERYTHING on the site!!** I will have discount codes for you to use during the sale. I will post them here soon.
+#### **BLACK FRIDAY SALE  November 19-29, 2021**   
+
+#### _Starts this Friday_.  Get 2 hours early access (10am MST) to the sale using my links.
+
+#### **![](/images/2-11.jpg)  **
+
+####  **15% off EVERYTHING on the site!!** I will have discount codes for you to use during the sale. I will post them here soon.
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
@@ -39,7 +45,7 @@ Get financing as low as $52 a month [here](https://www.createroom.com/pages/fina
 
 #### ![](/images/cr_4thofjuly-4032-2.jpg)
 
-#### More than one cubby be put side-by side or stacked.  
+#### More than one cubby be put side-by side or stacked.
 
 <video width="640" height="480" controls>  
 <source src="/images/cubby-colors.mp4" type="video/mp4">  
@@ -103,7 +109,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ***
 
-#### There is a Pre-built option for DreamBox! 
+#### There is a Pre-built option for DreamBox!
 
 ![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
