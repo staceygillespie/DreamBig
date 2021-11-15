@@ -13,9 +13,7 @@ weight = 4
 
 <span style="color:#000000;">
 
-#### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
-
-#### **_The 2021 Black Friday sale is November 19th-29th.  Check out the details about it_** [**_here_**](https://vn-z1tuw401ksg.instant.forestry.io/current-deals/ "sales")**_._**
+#### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light! **_The 2021 Black Friday sale is November 19th-29th.  Check out the details about it_** [**_here_**](https://vn-z1tuw401ksg.instant.forestry.io/current-deals/ "sales")**_._**
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
