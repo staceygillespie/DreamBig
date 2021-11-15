@@ -27,7 +27,7 @@ AND **_15% off all accessories_**.  Find ALL accessories [here](https://www.crea
 
 Get financing as low as $52 a month [here](https://www.createroom.com/pages/financing?refYvA8 "Financing").
 
-![](/images/bf_financing.jpg)
+![](/images/bf_financing.jpg)[Download File]( "Download File")
 
 # New Products
 
