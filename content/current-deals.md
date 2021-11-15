@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/gillespie-stacey4-27-21-32_crop.jpg"
+featured_image = "/images/bf-x3-v.png"
 title = "Current Deals"
 [menu.main]
 name = "Deals"
