@@ -115,15 +115,15 @@ I keep it at back of the table and can easily to pull it out to use
 Reasons I bought my Sew Station:
 
 * Recessed sewing machine: my back and neck needed it lower!
-* Comes with Sew Steady acrylic inset made for my machine
+* Comes with Sew Steady acrylic insert made for my machine
 * Back and side table leaves can be extended for more room when quilting
 * Add side table to left or right side -- I prefer the left
 * Electric Lift – moves my machine up to sew / down to stow
 * Turns it into small cabinet
-* Spool holder- easy access to my thread!
+* Spool holder - easy access to my thread!
 * On caster wheels so I can move my sewing table where I need it
 * Connects to my DreamBox table so I have extra table space when I quilt
-* 2 notion totes, 2 shoe box, 3 shelves
+* 2 notion totes, 2 shoebox totes, 3 shelves
 
 ![](/images/gillespie-stacey4-27-21-74.jpg)
 
@@ -141,8 +141,6 @@ Reasons I bought my Sew Station:
 * On caster wheels, can be easily moved.
 
 ![](/images/dreamcart-measurements.JPG)
-
-I just got my DreamCart and my son put it together.  Stay tuned for how I like and use it.
 
 ![](/images/ben-building-dreamcart.jpeg)![](/images/dreamcart.JPG)
 
