@@ -69,7 +69,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ### **DiviDrawers** or **InView** totes can be chosen for the DreamBox, DreamCart, Sew Station or Cubby
 
-#### $100 off [DreamBox](/dreambox) anytime with my code!  
+#### $100 off [DreamBox](/dreambox) anytime with my code!
 
 [db-ad-video.mp4](/images/db-ad-video.mp4 "db-ad-video.mp4")
 
@@ -81,6 +81,8 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ### [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station")
 
+![](/images/ss.png)
+
 ![](/images/gillespie-stacey4-27-21-58.jpg)
 
 ![](/images/img_0601.jpg "Sew Station")
@@ -91,7 +93,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ### [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
-![](/images/dc-ad.jpg)
+![](/images/dc.jpg)
 
 ![](/images/dreamcart.JPG)
 
