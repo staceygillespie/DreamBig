@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/black-friday.JPG"
+featured_image = "/images/dreambox-open-and-closed.JPG"
 title = "Current Deals"
 [menu.main]
 name = "Deals"
@@ -15,7 +15,7 @@ weight = 3
 
 ###### 
 
-#### get $100 off a **Dreambox: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span>**
+#### Use this code to get $100 off a **Dreambox: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span>**
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
@@ -23,19 +23,9 @@ weight = 3
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
 
-Also **FREE new products** for the first 1000 DreamBox orders.
-
-AND **_15% off all accessories_**.  Find ALL accessories [here](https://www.createroom.com/collections/accessories/?ref=YJvA8 "Accessories").
-
 ![](/images/black-friday-2021.JPG)
 
-### Already own a DreamBox?
-
-#### Get 20% off everything except a DreamBox using the code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSECRET</span>
-
-Get financing as low as $52 a month [here](https://www.createroom.com/pages/financing?refYvA8 "Financing").
-
-![](/images/bf_financing.jpg)
+#### 
 
 # New Products
 
@@ -79,7 +69,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ### **DiviDrawers** or **InView** totes can be chosen for the DreamBox, DreamCart, Sew Station or Cubby
 
-#### $100 off [DreamBox](/dreambox) anytime with my code!  AND Up to $500 off during the Black Friday sale!
+#### $100 off [DreamBox](/dreambox) anytime with my code!  
 
 [db-ad-video.mp4](/images/db-ad-video.mp4 "db-ad-video.mp4")
 
@@ -90,8 +80,6 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 ***
 
 ### [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station")
-
-![](/images/ss-ad.jpg)
 
 ![](/images/gillespie-stacey4-27-21-58.jpg)
 
