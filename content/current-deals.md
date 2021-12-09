@@ -13,7 +13,7 @@ weight = 3
 
 #### 
 
-###### 
+### There is a Christmas sale coming up.  Details will be announced soon.  The Christmas codes will give you even bigger discounts!
 
 #### Use this code to get $100 off a **Dreambox: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span>**
 
