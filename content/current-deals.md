@@ -25,8 +25,6 @@ weight = 3
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
 
-Early Access 12/17 @11am MST!
-
 **- Free Cutting mat ($50) & Christmas card for first 140 purchases!**
 
 **Up to $850 savings during the Christmas sale!**
@@ -36,7 +34,7 @@ $150 off Crown
 $200 off the pre-built option
 
 **Save on other furniture and add-ons:**  
- Save _$100 - Sew Station_, _$20 - Cubby_, _$50 - DreamCart_, _$50 - both Side Tables_, _$10 - power strip_ and _$15 -Necessities kit_  
+ Save _$100 - Sew Station_, _$25 - Cubby_, _$50 - DreamCart_, _$50 - both Side Tables_, _$10 - power strip_ and _$15 - Necessities kit_  
 **Get 0%APR for 12mo**  
   
 **$200 off the** [**DreamBox**](https://www.createroom.com/discount/DREAMBIG) **and $150 off the Crown with light** with Code: DREAMBIGJOY
@@ -53,11 +51,17 @@ Your DreamBox will be built in the factory and shipped to you!
 
 ![](/images/ss.png)
 
-### $25 off the [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
+#### $50 off the DreamCart
 
-#### ![](/images/cubby.png)![](/images/cr_4thofjuly-4032-2.jpg)
+![](/images/dc.jpg)![](/images/2a9e488d-6555-4a8b-989b-9b0a4fbaf6eb.jpg)
 
-#### More than one cubby can be placed side-by-side or stacked.
+#### $25 off the [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
+
+#### ![](/images/cubby.png)More than one cubby can be placed side-by-side or stacked.
+
+#### $50 off both the Side Tables
+
+![](/images/dreamboxchristmas.jpg)
 
 ***
 
