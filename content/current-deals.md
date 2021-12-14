@@ -13,7 +13,7 @@ weight = 3
 
 #### 
 
-### The Christmas sale starts Dec 17th-22, 2021
+### Get big discounts during the Christmas sale Dec 17th-22, 2021
 
 ###### Early Access 12/17 @11am MST! 
 
