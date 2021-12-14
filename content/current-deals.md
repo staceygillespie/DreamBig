@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/img_2445.HEIC"
+featured_image = "/images/2a9e488d-6555-4a8b-989b-9b0a4fbaf6eb.jpg"
 title = "Current Deals"
 [menu.main]
 name = "Deals"
