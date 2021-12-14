@@ -23,7 +23,7 @@ weight = 3
 
 ***
 
-###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
+###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*Create Room compensates me when you use my code or links._
 
 **- Free Cutting mat ($50) & Christmas card for first 140 purchases!**
 
