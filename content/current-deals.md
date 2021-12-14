@@ -13,9 +13,11 @@ weight = 3
 
 #### 
 
-### There is a Christmas sale coming up.  Details will be announced soon.  The Christmas codes will give you even bigger discounts!
+### The Christmas sale starts Dec 17th-22, 2021
 
-#### Use this code to get up to $800 off a **Dreambox and other Create Room Products: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
+###### Early Access 12/17 @11am MST! 
+
+#### Use this code to get up to $800 off a **Dreambox** and other Create Room Products**: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
@@ -23,11 +25,19 @@ weight = 3
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
 
-#### 
+Early Access 12/17 @11am MST!
 
-# New Products
+**- Free Cutting mat ($50) & Christmas card for first 140 purchases!**
 
-![](/images/3-9.jpg)
+**Up to $800 savings during the Christmas sale!**
+
+$200 off DreamBox  
+$100 off Crown  
+$200 off the pre-built option
+
+**Save on other furniture and add-ons:**  
+ $100 off the Sew Station $50 off the Cubby, $50 off the DreamCart and $50 both Side tables  
+**Get 0%APR for 12mo**
 
 ![/images/new-drawers-cubbyjpg.JPG](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/new-drawers-cubbyjpg.JPG)
 
