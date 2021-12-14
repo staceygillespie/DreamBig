@@ -15,7 +15,7 @@ weight = 4
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
-#### The **Christmas sale is Dec 17-22, 2021. Save up to $800**.  See the details under the DEALS tab here.
+#### The **Christmas sale is Dec 17-22, 2021. Save up to $800**.  See the details under the DEALS tab [here](https://www.dreambigwithstacey.com/current-deals/).
 
 <b>The Christmas discount code is <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span></b>
 
