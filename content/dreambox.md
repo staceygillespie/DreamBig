@@ -17,7 +17,7 @@ weight = 4
 
 #### The **Christmas sale is Dec 17-22, 2021. Save up to $800**.  See the details under the DEALS tab here.
 
-<b>The Christmas discount code is <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
+<b>The Christmas discount code is <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span></b>
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
