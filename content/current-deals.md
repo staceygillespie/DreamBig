@@ -43,11 +43,19 @@ $200 off the pre-built option
 
 ![](/images/3de6ac11-64b0-4a7c-9b0d-e0143d69e366.jpg)![](/images/dreamboxchristmas.jpg)
 
-### [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
+#### Save $200 on the pre-built option for DreamBox! 
 
-![](/images/cubby.png)
+![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
-#### ![](/images/cr_4thofjuly-4032-2.jpg)
+Your DreamBox will be built in the factory and shipped to you!
+
+#### Save $100 on the Sew Station
+
+![](/images/ss.png)
+
+### $25 off the [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
+
+#### ![](/images/cubby.png)![](/images/cr_4thofjuly-4032-2.jpg)
 
 #### More than one cubby can be placed side-by-side or stacked.
 
