@@ -17,7 +17,7 @@ weight = 3
 
 ##### Early Access 12/17 @11am MST!
 
-#### Use this code to get up to $800 off a **Dreambox__ and other Create Room Products**: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
+#### Use this code to get up to $800 off a **Dreambox__ and other Create Room Products__: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
@@ -47,7 +47,7 @@ Save _$100 - Sew Station_, _$25 - Cubby_, _$50 - DreamCart_, _$50 - both Side Ta
 
 Your DreamBox will be built in the factory and shipped to you!
 
-#### Save $100 on the [Sew Station]()
+#### Save $100 on the Sew Station
 
 #### ![](/images/ss.png)
 
