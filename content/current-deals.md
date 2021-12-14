@@ -15,15 +15,13 @@ weight = 3
 
 ### There is a Christmas sale coming up.  Details will be announced soon.  The Christmas codes will give you even bigger discounts!
 
-#### Use this code to get $100 off a **Dreambox: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span>**
+#### Use this code to get up to $800 off a **Dreambox and other Create Room Products: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 ***
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
-
-![](/images/black-friday-2021.JPG)
 
 #### 
 
