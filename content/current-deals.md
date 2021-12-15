@@ -37,35 +37,47 @@ $200 off the pre-built option
 Save _$100 - Sew Station_, _$25 - Cubby_, _$50 - DreamCart_, _$50 - both Side Tables_, _$10 - power strip_ and _$15 - Necessities kit_  
 **Get 0%APR for 12mo**
 
-**$200 off the** [**DreamBox**](https://www.createroom.com/discount/DREAMBIG) **and $150 off the** [**Crown**](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) **with light** with Code: DREAMBIGJOY
+**$200 off the** [**DreamBox**](https://www.createroom.com/discount/DREAMBIG) with Code: DREAMBIGJOY
 
-![](/images/3de6ac11-64b0-4a7c-9b0d-e0143d69e366.jpg)![](/images/dreamboxchristmas.jpg)
+![](/images/3de6ac11-64b0-4a7c-9b0d-e0143d69e366.jpg)
 
-#### Save $200 on the pre-built option for DreamBox!
+![](/images/affiliates-2-blank-code.jpg)
 
-![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
+**$150 off the** [**Crown**](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) **with light**
+
+![](/images/affiliates-3.jpg)
+
+Save $200 on the pre-built option for DreamBox!
+
+![](/images/affiliates-4.jpg)
 
 Your DreamBox will be built in the factory and shipped to you!
 
 #### Save $100 on the Sew Station
 
-#### ![](/images/ss.png)
+![](/images/affiliates-5.jpg)
 
 #### $50 off the DreamCart
 
-![](/images/dc.jpg)![](/images/2a9e488d-6555-4a8b-989b-9b0a4fbaf6eb.jpg)
+![](/images/affiliates-6.jpg)
+
+![](/images/2a9e488d-6555-4a8b-989b-9b0a4fbaf6eb.jpg)
 
 #### $25 off the [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
 
-#### ![](/images/cubby.png)More than one cubby can be placed side-by-side or stacked.
+![](/images/affiliates-7.jpg)
+
+#### More than one cubby can be placed side-by-side or stacked.
 
 #### $50 off both the Side Tables
+
+![](/images/affiliates-8.jpg)
 
 ![](/images/dreamboxchristmas.jpg)
 
 ### **NEW PRODUCTS**
 
-Aromatherapy Kit and Create Room Planner
+[Aromatherapy Kit](https://www.createroom.com/collections/aromatherapy/products/aromatherapy-kit?ref=YJvA8) and [Create Room Planner](https://www.createroom.com/products/planner?ref=YJvA8)
 
 ![](/images/3-9-1.jpg)
 
