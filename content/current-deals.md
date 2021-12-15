@@ -39,9 +39,9 @@ Save _$100 - Sew Station_, _$25 - Cubby_, _$50 - DreamCart_, _$50 - both Side Ta
 
 **$200 off the** [**DreamBox**](https://www.createroom.com/discount/DREAMBIG) with Code: DREAMBIGJOY
 
-![](/images/3de6ac11-64b0-4a7c-9b0d-e0143d69e366.jpg)
+![](/images/20201022_createroom_1190.jpg)
 
-![](/images/affiliates-2-blank-code.jpg)
+![](/images/affiliates-2-blank-code.jpg)![](/images/20201022_createroom_1324.jpg)
 
 **$150 off the** [**Crown**](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) **with light**
 
@@ -53,7 +53,7 @@ Save $200 on the pre-built option for DreamBox!
 
 Your DreamBox will be built in the factory and shipped to you!
 
-#### Save $100 on the [Sew Station]()
+#### Save $100 off the [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
 ![](/images/affiliates-5.jpg)
 
@@ -77,7 +77,7 @@ Your DreamBox will be built in the factory and shipped to you!
 
 ### **NEW PRODUCTS**
 
-[Aromatherapy Kit](https://www.createroom.com/collections/aromatherapy/products/aromatherapy-kit?ref=YJvA8) and [Create Room Planner](https://www.createroom.com/products/planner?ref=YJvA8)
+#### [Aromatherapy Kit](https://www.createroom.com/collections/aromatherapy/products/aromatherapy-kit?ref=YJvA8) and [Create Room Planner](https://www.createroom.com/products/planner?ref=YJvA8)
 
 ![](/images/3-9-1.jpg)
 
