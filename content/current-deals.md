@@ -15,7 +15,7 @@ weight = 3
 
 ### Get big discounts during the Christmas sale Dec 17th-22, 2021
 
-##### Early Access 12/17 @11am MST!
+##### Early Access 12/17 @11am MT!
 
 #### Use this code to get up to $850 off a **Dreambox and other Create Room Products: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
 
