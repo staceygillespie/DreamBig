@@ -39,8 +39,6 @@ Save _$100 - Sew Station_, _$25 - Cubby_, _$50 - DreamCart_, _$50 - both Side Ta
 
 **$200 off the** [**DreamBox**](https://www.createroom.com/discount/DREAMBIG) with Code: **<span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
 
-DREAMBIGJOY
-
 ![](/images/20201022_createroom_1190.jpg)
 
 ![](/images/affiliates-2-blank-code.jpg)![](/images/20201022_createroom_1324.jpg)
