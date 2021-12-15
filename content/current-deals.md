@@ -53,11 +53,11 @@ Save $200 on the pre-built option for DreamBox!
 
 Your DreamBox will be built in the factory and shipped to you!
 
-#### Save $100 on the Sew Station
+#### Save $100 on the [Sew Station]()
 
 ![](/images/affiliates-5.jpg)
 
-#### $50 off the DreamCart
+#### $50 off the [DreamCart]()
 
 ![](/images/affiliates-6.jpg)
 
