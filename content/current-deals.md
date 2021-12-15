@@ -17,7 +17,7 @@ weight = 3
 
 ##### Early Access 12/17 @11am MST!
 
-#### Use this code to get up to $800 off a **Dreambox and other Create Room Products: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
+#### Use this code to get up to $850 off a **Dreambox and other Create Room Products: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
