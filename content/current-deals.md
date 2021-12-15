@@ -41,7 +41,7 @@ Save _$100 - Sew Station_, _$25 - Cubby_, _$50 - DreamCart_, _$50 - both Side Ta
 
 ![](/images/20201022_createroom_1190.jpg)
 
-![](/images/affiliates-2-blank-code.jpg)![](/images/20201022_createroom_1324.jpg)![](/images/eb10949f-c280-47a9-800f-05b8eb8ffac4.jpg)
+![](/images/affiliates-2-blank-code.jpg)![](/images/20201022_createroom_1324.jpg)
 
 **$150 off the** [**Crown**](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) **with light**
 
@@ -73,7 +73,7 @@ Your DreamBox will be built in the factory and shipped to you!
 
 ![](/images/affiliates-8.jpg)
 
-![](/images/dreamboxchristmas.jpg)
+![](/images/dreamboxchristmas.jpg)![](/images/eb10949f-c280-47a9-800f-05b8eb8ffac4.jpg)
 
 ### **NEW PRODUCTS**
 
