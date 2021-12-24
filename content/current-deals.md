@@ -13,33 +13,15 @@ weight = 3
 
 #### 
 
-### Get big discounts during the Christmas sale Dec 17th-22, 2021
+### Unfortuately, there is sale on right now.
 
-##### Early Access 12/17 @11am MT!
-
-####  **$850 off a** **Dreambox** and with other **Create Room Products**: 
-
-#### Use the code: **<span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
+##### <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 ***
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*Create Room compensates me when you use my code or links._
-
-**- Free Cutting mat ($50) & Christmas card for first 140 purchases!**
-
-**Up to $850 savings during the Christmas sale!**
-
-$200 off DreamBox  
-$150 off Crown  
-$200 off the pre-built option
-
-**Save on other furniture and add-ons:**  
-Save _$100 - Sew Station_, _$25 - Cubby_, _$50 - DreamCart_, _$50 - both Side Tables_, _$10 - power strip_ and _$15 - Necessities kit_  
-**Get 0%APR for 12mo**
-
-**$200 off the** [**DreamBox**](https://www.createroom.com/discount/DREAMBIG) with Code: **<span style="color:#bf6667;font-size:xx-large;">DREAMBIGJOY</span>**
 
 ![](/images/20201022_createroom_1190.jpg)
 
