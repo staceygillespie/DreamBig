@@ -13,7 +13,7 @@ weight = 3
 
 #### 
 
-### Unfortuately, there is sale on right now.
+### Unfortunately, there is no sale on right now.
 
 ##### <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
