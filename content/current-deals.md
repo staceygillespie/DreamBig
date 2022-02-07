@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/3de6ac11-64b0-4a7c-9b0d-e0143d69e366.jpg"
+featured_image = "/images/valentine-dreambox.jpg"
 title = "Current Deals"
 [menu.main]
 name = "Deals"
