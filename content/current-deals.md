@@ -13,11 +13,13 @@ weight = 3
 
 ###  Valentines Sale!! February 11-21, 2022
 
+Early access starts at 11am MST.
+
 ##### <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save up to $800 <span style="font-size:small;">(this code does not expire)</span></b>
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
-![](/images/1200-x-630-sale-1.jpg)
+![](/images/dreambox-valentine-sale.JPG)
 
 <body style="background-color:#fff1d9;">
 
