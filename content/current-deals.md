@@ -11,13 +11,13 @@ weight = 3
 
 <span style="color:#000000;">
 
-#### 
-
-### There is going to be a Valentines Sale!! I will add the details of the sale soon.
+###  Valentines Sale!! February 11-21, 2022
 
 ##### <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
+
+![](/images/1200-x-630-sale-1.jpg)
 
 <body style="background-color:#fff1d9;">
 
@@ -27,7 +27,7 @@ weight = 3
 
   ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
-  ![/images/20201022_createroom_1324.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/20201022_createroom_1324.jpg)
+  ![/images/20201022](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/20201022_createroom_1324.jpg)
 
   Pre-built option for DreamBox!
 
@@ -73,11 +73,11 @@ weight = 3
 
   ![/images/fb-live-photo-1.png](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/fb-live-photo-1.png)
 
-  ![/images/cr_4thofjuly-3467.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/cr_4thofjuly-3467.jpg)
+  ![/images/cr](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/cr_4thofjuly-3467.jpg)
 
   Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?ref=YJvA8 "tote differences") here.
 
-  ![/images/stylesgif_900x600_crop_center.gif](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/stylesgif_900x600_crop_center.gif)
+  ![/images/stylesgif](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/stylesgif_900x600_crop_center.gif)
 
   #### Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order.
 
@@ -109,11 +109,11 @@ weight = 3
 
   ![/images/gillespie-stacey4-27-21-58.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/gillespie-stacey4-27-21-58.jpg)
 
-  ![/images/img_0601.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/img_0601.jpg "Sew Station")
+  ![/images/img](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/img_0601.jpg "Sew Station")
 
   ### [Side Tables](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8)
 
-  ![/images/gillespie-stacey4-27-21-32_crop.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
+  ![/images/gillespie-stacey4-27-21-32](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
 
   ### [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
@@ -182,10 +182,10 @@ weight = 3
     \*Space
   * **_Blockquote_**
 
-    >Space
+    > Space
   * **Bold**
 
-    \**bold**
+    \*_bold_*
   * **_Italic_**
 
     _italic_
@@ -263,7 +263,6 @@ weight = 3
 
     CtrlShiftJ
 
-    
   tabs**
 
 ***
