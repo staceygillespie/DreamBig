@@ -23,11 +23,8 @@ weight = 3
 
 * <span style="color:#000000;">
 
-  ![](/images/valentine-dreambox.jpg)
-
-  ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
-
-  ![/images/20201022](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/20201022_createroom_1324.jpg)
+  ![](/images/valentine-dreambox.jpg)**If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
+* ![](/images/1200-x-630-last-chance.jpg)
 
   Pre-built option for DreamBox!
 
