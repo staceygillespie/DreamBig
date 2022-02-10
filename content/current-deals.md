@@ -11,7 +11,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-###  Valentines Sale!! February 11-21, 2022
+### Valentines Sale!! February 11-21, 2022
 
 Early access starts at 11am MST.
 
@@ -35,9 +35,9 @@ $200 off the Pre-built option for DreamBox!
 
 * Your DreamBox will be built in the factory and shipped to you!
 
-  #### Save $100 off the [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8) 
+  #### Save $100 off the [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
-  #### <b>Save $150 with my exclusive code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save up to $800 <span style="font-size:small;">
+  #### <b>Save $150 with my exclusive code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> <span style="font-size:small;">
 
   ![](/images/sew-station-code.JPG)
 
