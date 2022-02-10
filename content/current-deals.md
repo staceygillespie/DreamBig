@@ -55,7 +55,7 @@ $200 off the Pre-built option for DreamBox!
 
 * Your DreamBox will be built in the factory and shipped to you!
 
-  #### **Save $100 off the** [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8) when buy a DreamBox
+  #### **Save $100 off the** [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8) when buy a DreamBox durin the Valentine Day sale.
 
   #### <b>Save $150 (an extra $50 with my exclusive code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span>when buying a sew station alone <span style="font-size:small;">
 
