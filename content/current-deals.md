@@ -25,7 +25,7 @@ Early access starts at 11am MST.
 
 * <span style="color:#000000;">
 
-  ![](/images/valentine-dreambox.jpg)**If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
+  ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
 ![](/images/dreambox-valentine-jpg.png)
 
@@ -39,9 +39,9 @@ $200 off the Pre-built option for DreamBox!
 
   #### <b>Save $150 with my exclusive code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save up to $800 <span style="font-size:small;">
 
-  ![/images/affiliates-5.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/affiliates-5.jpg)
+  ![](/images/sew-station-code.JPG)
 
-  #### $50 off the [DreamCart](https://app.forestry.io/sites/vn-z1tuw401ksg/)
+  $50 off the [DreamCart](https://app.forestry.io/sites/vn-z1tuw401ksg/)
 
   ![/images/affiliates-6.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/affiliates-6.jpg)
 
