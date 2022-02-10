@@ -33,8 +33,7 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 \- **Extra savings on accessories** in the DreamBox Design Studio
 
 * **0% APR for 12mo** (Get the DreamBox as low as $58.30/month)
-
-**1-4 week shipping times available.*** _This will increase as orders come through_.
+* **1-4 week shipping times available.*** _This will increase as orders come through_.
 
 ![](/images/dreambox-valentine-sale.JPG)![](/images/copy-of-createroom_jenhadfieldvalentines-1079.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
 
