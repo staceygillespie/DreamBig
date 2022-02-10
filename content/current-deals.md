@@ -47,6 +47,10 @@ Early access starts at 11am MST.
 
 ![](/images/dreambox-valentine-jpg.png)
 
+**$100 off Crown**
+
+[carousel-3.mp4](/images/carousel-3.mp4 "carousel-3.mp4")
+
 $200 off the Pre-built option for DreamBox!
 
 ![](/images/carousel-4.jpg)
