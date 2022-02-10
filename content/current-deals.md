@@ -27,14 +27,14 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 * **$100 off** [**DreamBox**](https://www.createroom.com/products/dreambox?ref=YJvA8)
 * **$100 off** [**Crown**](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8)
 * **$200 off Pre-built service**
-* Up to **$300 off Side-kick options** with DreamBox OR when you buy them separately:  **$50 off** [**Cubby**](https://www.createroom.com/products/cubby?ref=YJvA8), **$50 off** [**DreamCart**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8), $**100 off** [**Sew Station**](), **$100 off** [**Side Tables**](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8)
+* Up to **$300 off Side-kick options** with DreamBox OR when you buy them separately: **$50 off** [**Cubby**](https://www.createroom.com/products/cubby?ref=YJvA8), **$50 off** [**DreamCart**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8), $**100 off** [**Sew Station**](), **$100 off** [**Side Tables**](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8)
 * **Extra savings on accessories** in the DreamBox Design Studio
 * **0% APR for 12mo** (Get the DreamBox as low as $58.30/month)
 * **1-4 week shipping times available.*** _This will increase as orders come through._
 
   <b>I also have the sale code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGXOXO</span> that will save you 15% off ALL accessories if you already have a DreamBox.<span style="font-size:small;"></span></b>
 
-  \\<b>AND another sale code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save you $150 off the Sew Station when you buy it by itself.<span style="font-size:small;">(this code does not expire)</span></b>
+  <b>AND another sale code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save you $150 off the Sew Station when you buy it by itself.<span style="font-size:small;">(this code does not expire)</span></b>
 
 ![](/images/dreambox-valentine-sale.JPG)![](/images/copy-of-createroom_jenhadfieldvalentines-1079.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
 
