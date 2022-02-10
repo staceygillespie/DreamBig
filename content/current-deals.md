@@ -89,8 +89,7 @@ $200 off the Pre-built option! Your DreamBox will be built in the factory and sh
   ### The NEW Create Room [DiviDrawers](https://www.createroom.com/pages/drawer-detail?ref=YJvA8)
 
   You can choose which side of the DiviDrawer you'd like to display! Keep it a **solid** white or choose the **clear** side. Do you prefer seeing your supplies or covering them with a fun design from using a decorative paper you love?
-
-  ![/images/fb-live-photo-1.png](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/fb-live-photo-1.png)
+* ![](/images/stacey-product-photos-22.jpg)![](/images/stacey-product-photos-2.jpg)![/images/fb-live-photo-1.png](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/fb-live-photo-1.png)
 
   ![/images/cr](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/cr_4thofjuly-3467.jpg)
 
