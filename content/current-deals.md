@@ -32,7 +32,7 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 * **0% APR for 12mo** (Get the DreamBox as low as $58.30/month)
 * **1-4 week shipping times available.*** _This will increase as orders come through._
 
-  <b>I also have the sale code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGXOXO</span> that will save you 15% off ALL accessories.<span style="font-size:small;"></span></b>
+  <b>I also have the sale code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGXOXO</span> that will save you 15% off ALL accessories if you already have a DreamBox.<span style="font-size:small;"></span></b>
 
   \\<b>AND another sale code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save you $150 off the Sew Station when you buy it by itself.<span style="font-size:small;">(this code does not expire)</span></b>
 
