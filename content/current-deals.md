@@ -36,6 +36,7 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 * **1-4 week shipping times available.*** _This will increase as orders come through._
 
   <b>I also have the sale code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGXOXO</span> to save 15% off ALL accesories.<span style="font-size:small;">(this code does not expire)</span></b>
+* <b>AND a sale code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save you $150 off the Sew Station when you buy it by itself.<span style="font-size:small;">(this code does not expire)</span></b>
 
 ![](/images/dreambox-valentine-sale.JPG)![](/images/copy-of-createroom_jenhadfieldvalentines-1079.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
 
