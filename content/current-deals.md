@@ -19,18 +19,25 @@ Early access starts at 11am MST.
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
-**Valentine Sale Details(2/11-2/21):   Up to $800 savings!**  
+  
 _**Prices will be raising on all furniture pieces at the end of the sale due to increased costs. NOW is the time to purchase!_
 
-**1-4 week shipping times** plus **FREE Crafter's Caddy** ($35 value) for **first 75 DreamBox__ orders__!**
+**Valentine Sale Details(2/11-2/21):   Up to $800 savings!** 
 
-**-$100 off DreamBox (**_Use the code **DreamBig**_**)**
+* **1-4 week shipping times** plus **_FREE Crafter's Caddy_** ($35 value) for **first 75 DreamBox orders!**
 
-\- **$100 off Crown**
 
-**- $200 off Pre-built service**
+* **$100 off** [**DreamBox**](https://www.createroom.com/products/dreambox?ref=YJvA8) 
 
-\- Up to **$300 off Side-kick options** with DreamBox OR stand alone (**$50 off Cubby**, **$50 off DreamCart**, $**100 off Sew Station**, **$100 off Side Tables**)
+
+*  **$100 off** [**Crown**](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8)
+
+
+* **-$200 off Pre-built service**
+
+
+* -Up to **$300 off Side-kick options** with DreamBox OR when you buy them separately 
+* **$50 off** [**Cubby**](https://www.createroom.com/products/cubby?ref=YJvA8), **$50 off** [**DreamCart**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8), $**100 off** [**Sew Station**](), **$100 off** [**Side Tables**](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8)
 
 \- **Extra savings on accessories** in the DreamBox Design Studio
 
@@ -48,9 +55,9 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
 ![](/images/dreambox-valentine-jpg.png)
 
-**$100 off Crown**
+**$100 off** [**Crown**]()
 
-[carousel-3.mp4](/images/carousel-3.mp4 "carousel-3.mp4")
+[carousel-3.mp4](/images/carousel-3.mp4 "carousel-3.mp4")[story-3-1.mp4](/images/story-3-1.mp4 "story-3-1.mp4")[carousel-3.mp4](/images/carousel-3.mp4 "carousel-3.mp4")
 
 $200 off the Pre-built option for DreamBox!
 
