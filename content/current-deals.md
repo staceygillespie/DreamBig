@@ -48,7 +48,7 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
 **$100 off** [**Crown**]()
 
-[carousel-3.mp4](/images/carousel-3.mp4 "carousel-3.mp4")[story-3-1.mp4](/images/story-3-1.mp4 "story-3-1.mp4")[carousel-3.mp4](/images/carousel-3.mp4 "carousel-3.mp4")
+![](/images/crown.JPG)
 
 $200 off the Pre-built option for DreamBox!
 
@@ -110,13 +110,9 @@ $200 off the Pre-built option for DreamBox!
 
   ***
 
-  # Other products available
-
-  ### **DiviDrawers** or **InView** totes can be chosen for the DreamBox, DreamCart, Sew Station or Cubby
+  ### 
 
   #### $100 off [DreamBox](https://app.forestry.io/dreambox) anytime with my code!
-
-  [db-ad-video.mp4](https://app.forestry.io/images/db-ad-video.mp4 "db-ad-video.mp4")
 
   ##### Code: **DREAMBIG**
 
@@ -288,37 +284,21 @@ $200 off the Pre-built option for DreamBox!
 
 ***
 
-###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*Create Room compensates me when you use my code or links._
-
-![](/images/20201022_createroom_1324.jpg)
+###### 
 
 Pre-built option for DreamBox!
-
-![](/images/affiliates-4.jpg)
 
 Your DreamBox will be built in the factory and shipped to you!
 
 #### Save $100 off the [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
-![](/images/affiliates-5.jpg)
-
 #### $50 off the [DreamCart]()
 
-![](/images/affiliates-6.jpg)
-
-![](/images/2a9e488d-6555-4a8b-989b-9b0a4fbaf6eb.jpg)
-
 #### $25 off the [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
-
-![](/images/affiliates-7.jpg)
 
 #### More than one cubby can be placed side-by-side or stacked.
 
 #### $50 off both the Side Tables
-
-![](/images/affiliates-8.jpg)
-
-![](/images/dreamboxchristmas.jpg)![](/images/eb10949f-c280-47a9-800f-05b8eb8ffac4.jpg)
 
 ### **NEW PRODUCTS**
 
