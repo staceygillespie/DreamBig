@@ -20,9 +20,9 @@ Early access starts at 11am MST.
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 **Valentine Sale Details(2/11-2/21):   Up to $800 savings!**  
- _**Prices will be raising on all furniture pieces at the end of the sale due to increased costs. NOW is the time to purchase!_
+_**Prices will be raising on all furniture pieces at the end of the sale due to increased costs. NOW is the time to purchase!_
 
-**1-4 week shipping times** plus **FREE Crafter's Caddy** ($35 value) for **first 75 DreamBox** orders**!**
+**1-4 week shipping times** plus **FREE Crafter's Caddy** ($35 value) for **first 75 DreamBox__ orders__!**
 
 **-$100 off DreamBox (**_Use the code **DreamBig**_**)**
 
@@ -32,8 +32,9 @@ Early access starts at 11am MST.
 
 \- Up to **$300 off Side-kick options** with DreamBox OR stand alone (**$50 off Cubby**, **$50 off DreamCart**, $**100 off Sew Station**, **$100 off Side Tables**)
 
-\- **Extra savings on accessories** in the DreamBox Design Studio  
- - **0% APR for 12mo** (Get the DreamBox as low as $58.30/month)
+\- **Extra savings on accessories** in the DreamBox Design Studio
+
+* **0% APR for 12mo** (Get the DreamBox as low as $58.30/month)
 
 **1-4 week shipping times available.*** _This will increase as orders come through_.
 
@@ -73,7 +74,7 @@ $200 off the Pre-built option for DreamBox!
 
   More than one cubby can be placed side-by-side or stacked.
 
-  #### $100 off both the Side Tables
+  #### $100 off both the [Side Tables]()
 
   ![](/images/carousel-7.jpg)
 
