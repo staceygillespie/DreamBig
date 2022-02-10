@@ -48,15 +48,15 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
 ![](/images/crown.JPG)
 
-$200 off the Pre-built option for DreamBox!
+$200 off the Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
 ![](/images/carousel-4.jpg)
 
-* Your DreamBox will be built in the factory and shipped to you!
+* 
 
   #### **Save $100 off the** [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8) when buy a DreamBox during the Valentine Day sale.
 
-  #### <b>Save $150 (an extra $50 with my exclusive code): <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> when buying a sew station alone <span style="font-size:small;">
+  #### <b>Save $150 (_an extra $50 with my exclusive code_): <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> when buying a sew station alone <span style="font-size:small;">
 
   ![](/images/sew-station-code.JPG)
 
