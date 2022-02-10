@@ -19,7 +19,7 @@ Early access starts at 11am MST.
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
-![](/images/dreambox-valentine-sale.JPG)
+![](/images/dreambox-valentine-sale.JPG)![](/images/copy-of-createroom_jenhadfieldvalentines-1079.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
 
 <body style="background-color:#fff1d9;">
 
@@ -43,23 +43,21 @@ $200 off the Pre-built option for DreamBox!
 
   $50 off the [DreamCart](https://app.forestry.io/sites/vn-z1tuw401ksg/)
 
-  ![/images/affiliates-6.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/affiliates-6.jpg)
+  ![](/images/carousel-6.jpg)
 
-  ![/images/2a9e488d-6555-4a8b-989b-9b0a4fbaf6eb.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/2a9e488d-6555-4a8b-989b-9b0a4fbaf6eb.jpg)
+  $50 off the [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
 
-  #### $25 off the [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
+  ![](/images/carousel-5.jpg)
 
-  ![/images/affiliates-7.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/affiliates-7.jpg)
+  More than one cubby can be placed side-by-side or stacked.
 
-  #### More than one cubby can be placed side-by-side or stacked.
+  #### $100 off both the Side Tables
 
-  #### $50 off both the Side Tables
+  ![](/images/carousel-7.jpg)
 
-  ![/images/affiliates-8.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/affiliates-8.jpg)
+  ![](/images/carousel-9.jpg)
 
-  ![/images/dreamboxchristmas.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/dreamboxchristmas.jpg)
-
-  ![/images/eb10949f-c280-47a9-800f-05b8eb8ffac4.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/eb10949f-c280-47a9-800f-05b8eb8ffac4.jpg)
+  ![](/images/copy-of-createroom_jenhadfieldvalentines-3.jpg)
 
   ### **NEW PRODUCTS**
 
@@ -304,6 +302,8 @@ Your DreamBox will be built in the factory and shipped to you!
 ### **NEW PRODUCTS**
 
 #### [Aromatherapy Kit](https://www.createroom.com/collections/aromatherapy/products/aromatherapy-kit?ref=YJvA8) and [Create Room Planner](https://www.createroom.com/products/planner?ref=YJvA8)
+
+![](/images/copy-of-createroom_jenhadfieldvalentines-1135.jpg)
 
 ![](/images/3-9-1.jpg)
 
