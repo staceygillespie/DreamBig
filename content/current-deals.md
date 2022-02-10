@@ -29,13 +29,15 @@ Early access starts at 11am MST.
 
 ![](/images/dreambox-valentine-jpg.png)
 
-Pre-built option for DreamBox!
+$200 off the Pre-built option for DreamBox!
 
-* ![/images/affiliates-4.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/affiliates-4.jpg)
+![](/images/carousel-4.jpg)
 
-  Your DreamBox will be built in the factory and shipped to you!
+* Your DreamBox will be built in the factory and shipped to you!
 
-  #### Save $100 off the [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
+  #### Save $100 off the [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8) (SAVE $150 with my code: 
+
+  #### <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save up to $800 <span style="font-size:small;">
 
   ![/images/affiliates-5.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/affiliates-5.jpg)
 
