@@ -19,24 +19,15 @@ Early access starts at 11am MST.
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
-  
 _**Prices will be raising on all furniture pieces at the end of the sale due to increased costs. NOW is the time to purchase!_
 
-**Valentine Sale Details(2/11-2/21):   Up to $800 savings!** 
+**Valentine Sale Details(2/11-2/21):   Up to $800 savings!**
 
 * **1-4 week shipping times** plus **_FREE Crafter's Caddy_** ($35 value) for **first 75 DreamBox orders!**
-
-
-* **$100 off** [**DreamBox**](https://www.createroom.com/products/dreambox?ref=YJvA8) 
-
-
-*  **$100 off** [**Crown**](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8)
-
-
+* **$100 off** [**DreamBox**](https://www.createroom.com/products/dreambox?ref=YJvA8)
+* **$100 off** [**Crown**](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8)
 * **-$200 off Pre-built service**
-
-
-* -Up to **$300 off Side-kick options** with DreamBox OR when you buy them separately 
+* -Up to **$300 off Side-kick options** with DreamBox OR when you buy them separately
 * **$50 off** [**Cubby**](https://www.createroom.com/products/cubby?ref=YJvA8), **$50 off** [**DreamCart**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8), $**100 off** [**Sew Station**](), **$100 off** [**Side Tables**](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8)
 
 \- **Extra savings on accessories** in the DreamBox Design Studio
@@ -71,7 +62,7 @@ $200 off the Pre-built option for DreamBox!
 
   ![](/images/sew-station-code.JPG)
 
-  $50 off the [DreamCart](https://app.forestry.io/sites/vn-z1tuw401ksg/)
+  $50 off the [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
   ![](/images/carousel-6.jpg)
 
@@ -93,7 +84,7 @@ $200 off the Pre-built option for DreamBox!
 
   #### [Aromatherapy Kit](https://www.createroom.com/collections/aromatherapy/products/aromatherapy-kit?ref=YJvA8) and [Create Room Planner](https://www.createroom.com/products/planner?ref=YJvA8)
 
-  ![/images/3-9-1.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/3-9-1.jpg)
+  ![](/images/copy-of-createroom_jenhadfieldvalentines-1135.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1158.jpg)
 
   ***
 
