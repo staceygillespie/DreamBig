@@ -29,19 +29,21 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
  Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
-* 
-
 #### **Save $50 off the** [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8) 
 
 #### <b>Save $50: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> when buying a sew station alone <span style="font-size:small;">
 
+![](/images/ss.png)
+
+![](/images/gillespie-stacey4-27-21-58.jpg)
+
 $50 off the [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
-![](/images/dc.jpg)
+![](/images/copy-of-createroom_jenhadfieldvalentines-1111.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1120.jpg)
 
 [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
 
-![](/images/cubby.png)
+![](/images/copy-of-bs5a1105-edit.jpg)
 
 More than one cubby can be placed side-by-side or stacked.
 
