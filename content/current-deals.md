@@ -35,7 +35,7 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
 #### ![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
 
-![](/images/copy-of-createroom_jenhadfieldvalentines-3.jpg)![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
+![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
 Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
@@ -96,12 +96,6 @@ You can choose which side of the DiviDrawer you'd like to display! Keep it a **s
   Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?ref=YJvA8 "tote differences") here.
 
   ***
-
-  ### [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station")
-
-  ![/images/ss.png](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/ss.png)
-
-  ![/images/gillespie-stacey4-27-21-58.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/gillespie-stacey4-27-21-58.jpg)
 
   ![/images/img](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/img_0601.jpg "Sew Station")
 
