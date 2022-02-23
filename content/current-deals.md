@@ -35,9 +35,7 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
 #### ![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
 
-![](/images/copy-of-createroom_jenhadfieldvalentines-3.jpg)
-
-Pre-built option! Your DreamBox will be built in the factory and shipped to you!
+![](/images/copy-of-createroom_jenhadfieldvalentines-3.jpg)Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
 #### [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
@@ -60,10 +58,6 @@ Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 More than one cubby can be placed side-by-side or stacked.
 
 #### [Side Tables]()
-
-![](/images/gillespie-stacey4-27-21-38.jpg)
-
-![](/images/copy-of-createroom_jenhadfieldvalentines-3.jpg)
 
 ### **NEW PRODUCTS**
 
