@@ -17,9 +17,9 @@ weight = 3
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")![](/images/valentine-dreambox.jpg)
 
-_**Prices will be raising on all furniture pieces at the end of the sale due to increased costs. NOW is the time to purchase!_
+_**Prices will be raising on all furniture pieces at the end of the sale due to increased costs._ 
 
-![](/images/1200-x-630-last-chance.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1079.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
+![](/images/1200-x-630-last-chance.jpg)
 
 <body style="background-color:#fff1d9;">
 
@@ -28,11 +28,19 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
   ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 * 
 
+### **NEW PRODUCTS**
+
+#### [Aromatherapy Kit](https://www.createroom.com/collections/aromatherapy/products/aromatherapy-kit?ref=YJvA8) and [Create Room Planner](https://www.createroom.com/products/planner?ref=YJvA8)
+
+![](/images/copy-of-createroom_jenhadfieldvalentines-1135.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1158.jpg)
+
+#### ![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
+
 ![](/images/copy-of-createroom_jenhadfieldvalentines-3.jpg)
 
- Pre-built option! Your DreamBox will be built in the factory and shipped to you!
+Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
-#### [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8) 
+#### [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
 #### <b>Save $50: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> when buying a Sew Station alone <span style="font-size:small;">
 
@@ -40,7 +48,7 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
 ![](/images/gillespie-stacey4-27-21-58.jpg)
 
-####  [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
+#### [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
 #### <b>Save $50: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG50</span> when buying a DreamCart alone <span style="font-size:small;">
 
@@ -52,7 +60,7 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
 More than one cubby can be placed side-by-side or stacked.
 
-####  [Side Tables]()
+#### [Side Tables]()
 
 ![](/images/gillespie-stacey4-27-21-38.jpg)
 
