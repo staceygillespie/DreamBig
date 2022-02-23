@@ -42,7 +42,7 @@ Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
 #### [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
-#### <b>Save $50: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> when buying a Sew Station alone <span style="font-size:small;">
+#### <b>Save $50: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> when buying a Sew Station <span style="font-size:small;">
 
 ![](/images/ss.png)
 
@@ -50,7 +50,7 @@ Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
 #### [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
-#### <b>Save $50: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG50</span> when buying a DreamCart alone <span style="font-size:small;">
+#### <Use the code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG50</span> to save $50 when buying a DreamCart <span style="font-size:small;">
 
 ![](/images/copy-of-createroom_jenhadfieldvalentines-1111.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1120.jpg)
 
