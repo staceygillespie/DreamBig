@@ -35,7 +35,9 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
 #### ![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
 
-![](/images/copy-of-createroom_jenhadfieldvalentines-3.jpg)Pre-built option! Your DreamBox will be built in the factory and shipped to you!
+![](/images/copy-of-createroom_jenhadfieldvalentines-3.jpg)![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
+
+Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
 #### [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
@@ -49,21 +51,17 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
 #### <Use the code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG50</span> to save $50 when buying a DreamCart <span style="font-size:small;">
 
-![](/images/copy-of-createroom_jenhadfieldvalentines-1111.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1120.jpg)
+![](/images/copy-of-createroom_jenhadfieldvalentines-1111.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1120.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0763.jpg)
 
 [Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
 
-![](/images/copy-of-bs5a1105-edit.jpg)
+![](/images/cr_4thofjuly-4117-1.jpg)
 
 More than one cubby can be placed side-by-side or stacked.
 
 #### [Side Tables]()
 
-### **NEW PRODUCTS**
-
-#### [Aromatherapy Kit](https://www.createroom.com/collections/aromatherapy/products/aromatherapy-kit?ref=YJvA8) and [Create Room Planner](https://www.createroom.com/products/planner?ref=YJvA8)
-
-![](/images/copy-of-createroom_jenhadfieldvalentines-1135.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1158.jpg)
+![](/images/dreambox-side-tables-nov-2019jpg.jpg)
 
 ***
 
