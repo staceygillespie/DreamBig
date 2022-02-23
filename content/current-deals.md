@@ -26,7 +26,6 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 * <span style="color:#000000;">
 
   ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
-* 
 
 ### **NEW PRODUCTS**
 
@@ -42,7 +41,7 @@ Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
 #### [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
-#### <b>Save $50: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> when buying a Sew Station <span style="font-size:small;">
+#### <b>Use the code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save $50 when buying a Sew Station <span style="font-size:small;">
 
 ![](/images/ss.png)
 
