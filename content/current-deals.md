@@ -15,7 +15,7 @@ weight = 3
 
 _Early access starts at 11am MST._
 
-##### <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save up to $800 <span style="font-size:small;">(this code does not expire)</span></b>
+##### <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")![](/images/valentine-dreambox.jpg)
 
