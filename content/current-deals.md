@@ -29,7 +29,7 @@ _**Prices will be raising on all furniture pieces at the end of the sale due to 
 
  Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
-#### **Save $50 off the** [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8) 
+#### [**Sew Station**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8) 
 
 #### <b>Save $50: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> when buying a sew station alone <span style="font-size:small;">
 
