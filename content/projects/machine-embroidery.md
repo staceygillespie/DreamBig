@@ -40,7 +40,7 @@ I wanted to work on a quilt project with my sisters.  We decided to make this cu
 
 **My NEXT Bench Pillow in progress**
 
-[May Flowers]()  You can get this in an Embroidery version or a sewing version.  Get them at your local quilt shop.  Some shops also have kits or you can find them online.  We choose our own fabric for this one.
+[May Flowers]()  You can get this in an embroidery version or a sewing version.  Get them at your local quilt shop.  Some shops also have kits or you can find them online.  We choose our own fabric for this one.
 
 ![](/images/mayflowers-quilited.jpg)
 
