@@ -11,7 +11,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-###  Mothers' Day sale details will be released soon!  
+###  Mother's Day sale details will be released soon!  
 
 Find the sale [here ]()(during the sale)
 
