@@ -39,7 +39,7 @@ I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new
 
 _![](/images/createroom_bluetilewallpaper-1.jpg)_
 
-![](/images/createroom_floralwallpaper-18.jpg)![](/images/createroom_buffaloplaidwallpaper-11.jpg)
+![](/images/createroom_floralwallpaper-18.jpg)![](/images/createroom_buffaloplaidwallpaper-11.jpg)![](/images/dreambox-wallpaper-tile-open.png)
 
 <body style="background-color:#fff1d9;">
 
