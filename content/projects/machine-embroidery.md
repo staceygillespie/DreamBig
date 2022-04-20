@@ -24,6 +24,12 @@ I've been learning machine embroidery and this is my first BIG project.  I made 
 
 ![](/images/rhys-quilt-1.JPG)![](/images/rhys-quilt-2.JPG)
 
+**I took a Kimberbell virtual event class and made this pillow.**
+
+I wanted to learn how to do the background quilting and to get tips on how to do more than basic machine embroidery so I  took this class.
+
+![](/images/noplacelikehomebookkit.jpg)![](/images/noplacelikehomeembroidery.jpg)
+
 **My first Kimberbell Bench Pillow!**
 
 I wanted to work on a quilt project with my sisters.  We decided to make this cute [Hoppy Easter Bench pillow](https://kimberbell.com/product/hoppy-easter-bench-pillow-machine-embroidery/).  You can buy this pattern at your local quilt shop or online.  You can get it in an Embroidery version or a sewing one.  My sisters used the sewing version since they don't have embroidery machines. We bought a fabric and embellishment kit [here](https://mygirlfriendsquiltshoppe.com/product/kimberbell-hoppy-easter-bench-pillow-kit/).
