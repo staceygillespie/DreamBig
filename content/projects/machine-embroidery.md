@@ -16,11 +16,13 @@ Embroidering is fun!
 
 </span></body>
 
-I've been learning machine embroidery and this is my first BIG project.  I made this quilt for my Grandson and gave it to him for his first birthday.  The appliquéd animals are made from minky and it also has minky on the border and back of the quilt.
+I've been learning machine embroidery and this is my first BIG project.  I decided to go with a forest theme.  I made this quilt for my Grandson and gave it to him for his first birthday.  The appliquéd animals are made from minky and it also has green minky on the border and on the back of the quilt.  You can get the design [here](https://www.anitagoodesign.com/product/animal-adventure/).  But I got mine from ebay. 
 
 ![](/images/stacey-gillespie-2-17-22-1.jpg)
 
-![](/images/stacey-gillespie-2-17-22-4.jpg)I made a goal to get it done by Christmas, but after getting Covid, I changed the finish date to his birthday in February.
+![](/images/stacey-gillespie-2-17-22-4.jpg)
+
+I made a goal to getthis quilt done by Christmas. But after getting Covid, I changed the finish date to his birthday in February.
 
 ![](/images/rhys-quilt-1.JPG)![](/images/rhys-quilt-2.JPG)
 
