@@ -31,7 +31,7 @@ Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-acc
 
 # **NEW Wallpaper!**
 
-I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**.  Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref=YJvA8).
+I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**.  Available starting April 29th. Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref=YJvA8).
 
 * 3 pre-sized panels
 * Peel and stick adhesive
