@@ -15,13 +15,13 @@ weight = 3
 
 Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-access?ref=YJvA8) (during the sale)
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">**DREAMBIGFORMOM** </span> (for ALL the Mother's Day discounts) <span style="font-size:small;"></span></b>
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">**DREAMBIGFORMOM** </span> 
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">**DREAMBIGMORELOVE** </span> (For a % off ALL accessories and furniture other than the DreamBox)<span style="font-size:small;"></span></b>
+(for ALL the Mother's Day discounts) <span style="font-size:small;"></span></b>
 
-Use the code: **DREAMBIGFORMOM** (for ALL the Mothers' Day discounts)
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">**DREAMBIGMORELOVE** </span> 
 
-Use the code: **DREAMBIGMORELOVE** (For a % off ALL accessories and furniture other than the DreamBox)
+(For a % off ALL accessories and furniture other than the DreamBox)<span style="font-size:small;"></span></b>
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
