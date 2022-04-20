@@ -11,19 +11,19 @@ weight = 3
 
 <span style="color:#000000;">
 
-###  Mother's Day sale details will be released soon!  
+### Mother's Day sale details will be released soon!
 
 Find the sale [here ]()(during the sale)
 
 Use the code: **DREAMBIGFORMOM** (for ALL the Mothers' Day discounts)
 
-Use the code: **DREAMBIGMORELOVE** (For a % off ALL accessories and furniture other than the DreamBox) 
+Use the code: **DREAMBIGMORELOVE** (For a % off ALL accessories and furniture other than the DreamBox)
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
-# **NEW! Wallpaper!**  
+# **NEW Wallpaper!**
 
 I put removable wallpaper on both of my DreamBoxes.  Now Create Room has 3 new wallpaper designs.  Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref+YJvA8).
 
