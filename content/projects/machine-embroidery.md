@@ -34,7 +34,7 @@ I wanted to learn how to do the background quilting and to get tips on how to do
 
 **My first Kimberbell Bench Pillow!**
 
-I wanted to work on a quilt project with my sisters.  We decided to make this cute [Hoppy Easter Bench Pillow]().  You can get this in an Embroidery version or a sewing version.  You can get the patterns and kits at your local quilt shop.  we bought our kits [here](https://mygirlfriendsquiltshoppe.com/product/kimberbell-hoppy-easter-bench-pillow-kit/).
+I wanted to work on a quilt project with my sisters.  We decided to make this cute [Hoppy Easter Bench Pillow]().  You can get this in an Embroidery version or a sewing version.  You can get the patterns and kits at your local quilt shop.  We bought our kits [here](https://mygirlfriendsquiltshoppe.com/product/kimberbell-hoppy-easter-bench-pillow-kit/).  My sisters used the sewing version since they don't have embroidery machines.
 
 ![](/images/easter-bench-pillow-done.jpg)![](/images/easter-bench-pillow-pieces.jpg)![](/images/easterbechpillowunsewn.jpg)
 
