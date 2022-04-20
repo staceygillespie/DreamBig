@@ -25,7 +25,7 @@ Use the code: **DREAMBIGMORELOVE** (For a % off ALL accessories and furniture ot
 
 # **NEW Wallpaper!**
 
-I put removable wallpaper on both of my DreamBoxes.  Now Create Room has 3 new wallpaper designs.  Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref+YJvA8).
+I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**.  Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref=YJvA8).
 
 * 3 pre-sized panels
 * Peel and stick adhesive
