@@ -23,7 +23,7 @@ Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-acc
 
 (For a % off ALL accessories and furniture other than the DreamBox)<span style="font-size:small;"></span></b>
 
-![](/images/md-sale.JPG)
+![](/images/md.JPG)
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
