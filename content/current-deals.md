@@ -27,6 +27,10 @@ Use the code: **DREAMBIGMORELOVE** (For a % off ALL accessories and furniture ot
 
 I have put removable wallpaper on both of my DreamBoxes.  Now Create Room has 3 new wallpaper designs.  Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref+YJvA8).
 
+* 3 pre-sized panels
+* Peel and stick adhesive
+* Easy to remove and swap styles
+
 _![](/images/createroom_bluetilewallpaper-1.jpg)_
 
 ![](/images/createroom_floralwallpaper-18.jpg)![](/images/createroom_buffaloplaidwallpaper-11.jpg)
