@@ -22,7 +22,7 @@ I've been learning machine embroidery and this is my first BIG project.  I decid
 
 ![](/images/stacey-gillespie-2-17-22-4.jpg)
 
-I made a goal to getthis quilt done by Christmas. But after getting Covid, I changed the finish date to his birthday in February.
+I made a goal to getthis quilt done by Christmas. But after getting Covid, I changed the finish date to his birthday in February.  If you'd like a Create Room Planner like this one you can get it [here](https://www.createroom.com/products/planner?ref=YJvA8).
 
 ![](/images/rhys-quilt-1.JPG)![](/images/rhys-quilt-2.JPG)
 
