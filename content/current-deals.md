@@ -17,9 +17,7 @@ Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-acc
 
 <b>Use the code<span style="color:#bf6667;font-size:xx-large;">**DREAMBIGFORMOM** </span>for ALL the Mother's Day discounts <span style="font-size:small;"></span></b>
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">**DREAMBIGMORELOVE** </span>
-
-(For 15% off ALL accessories and furniture other than the DreamBox -not including the new wallpaper)<span style="font-size:small;"></span></b>
+<b>Use the code<span style="color:#bf6667;font-size:xx-large;">**DREAMBIGMORELOVE** </span>for 15% off ALL accessories and furniture other than the DreamBox or the NEW [wallpape](https://www.createroom.com/pages/wallpaper-detail?ref=JvA8)r<span style="font-size:small;"></span></b>
 
 ![](/images/mdwithcode3png.PNG)
 
