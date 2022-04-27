@@ -13,8 +13,6 @@ weight = 3
 
 ### Mother's Day sale stats April 29th!
 
-at 11am MST
-
 Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-access?ref=YJvA8).
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">**DREAMBIGFORMOM** </span>
@@ -23,7 +21,7 @@ Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-acc
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">**DREAMBIGMORELOVE** </span>
 
-(For a % off ALL accessories and furniture other than the DreamBox -not including the new wallpaer)<span style="font-size:small;"></span></b>
+(For 15% off ALL accessories and furniture other than the DreamBox -not including the new wallpaer)<span style="font-size:small;"></span></b>
 
 ![](/images/mdwithcode3png.PNG)
 
