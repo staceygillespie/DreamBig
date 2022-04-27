@@ -56,7 +56,7 @@ Check out the NEW Products [Here](/current-deals/ "Deal page").
 
 See how Anna personalized her totes with fun liners -- and did you notice her DreamBox is in her bedroom? It can go almost anywhere.
 
-![](/images/anna-wilson.jpg)
+![](/images/anna-wilson.jpg)![](/images/createroom_reneemothersday-25.jpg)
 
 * Store them in other places - swap them in and out
 
