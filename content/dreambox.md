@@ -15,7 +15,7 @@ weight = 4
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
-The Mother's Day sale details will be available soon.  [**SALE details and codes.**](https://www.dreambigwithstacey.com/current-deals/)
+The Mother's Day sale starts April 29th at 11am MST.  [**SALE details and codes.**](https://www.dreambigwithstacey.com/current-deals/)
 
 Check out the new [DreamBox Wallpaper](https://www.dreambigwithstacey.com/current-deals/).
 
