@@ -131,7 +131,7 @@ Reasons I bought my Sew Station:
 
 ![](/images/gillespie-stacey4-27-21-74.jpg)
 
-## ![](/images/sew-station.JPG)
+## ![](/images/sew-station.JPG)![](/images/stacey-gillespie-2-17-22-13.jpg)
 
 ***
 
@@ -146,7 +146,7 @@ Reasons I bought my Sew Station:
 
 ![](/images/dreamcart-measurements.JPG)
 
-![](/images/ben-building-dreamcart.jpeg)![](/images/dreamcart.JPG)
+![](/images/ben-building-dreamcart.jpeg)![](/images/dreamcart.JPG)![](/images/stacey-gillespie-2-17-22-40.jpg)
 
 My [DreamCart](https://www.createroom.com/products/dream-cart "DreamCart") looks so cute when I decorated the bins!
 
