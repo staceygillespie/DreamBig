@@ -11,7 +11,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-### Mother's Day sale stats April 29th!
+### Mother's Day sale starts April 29th!
 
 Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-access?ref=YJvA8).
 
@@ -47,7 +47,7 @@ Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-acc
 
 __1-4 week shipping time!*__
 
-![](/images/4-10.png)![](/images/mdwithcode2png.PNG)
+![](/images/4-10.png)![](/images/mdwithcode2png.PNG)![](/images/3-8.png)
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
