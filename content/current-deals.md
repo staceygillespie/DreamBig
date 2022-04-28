@@ -25,13 +25,13 @@ Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-acc
 
 4/29 @11AM MST(Early Access)- 5/11 @11:59PM MST
 
-**Up to $900 in savings!**
+**Up to $850 in savings!**
 
 \*FREE Aromatherapy Kit ($130 value) for first 150 purchasers!
 
 **$150 off DreamBox**
 
-**$200 off pre-built service!**
+**$150 off pre-built service!**
 
 **Up to $350 off Side-kick options with DreamBox purchase:** $50 off Cubby, $100 off DreamCart, $100 off both Side Tables, $100 off Sew Station
 
