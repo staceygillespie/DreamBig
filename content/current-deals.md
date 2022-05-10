@@ -11,39 +11,11 @@ weight = 3
 
 <span style="color:#000000;">
 
-### Mother's Day sale starts April 29th!
+### The indepence Day sale will be July 1st to July 11th.
 
-Find the sale [here](https://www.createroom.com/pages/mothers-day-2022-early-access?ref=YJvA8).
+##### I'll add the discount codes and sale details a few days before the sale.
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">**DREAMBIGFORMOM** </span>for ALL the Mother's Day discounts <span style="font-size:small;"></span></b>
-
-<b>Use the code<span style="color:#bf6667;font-size:xx-large;">**DREAMBIGMORELOVE** </span>for 15% off ALL accessories and furniture other than the DreamBox or the NEW [wallpape](https://www.createroom.com/pages/wallpaper-detail?ref=JvA8)r<span style="font-size:small;"></span></b>
-
-![](/images/mdwithcode.PNG)
-
-**Mother's Day Sale Details!**
-
-4/29 @11AM MST(Early Access)- 5/11 @11:59PM MST
-
-**Up to $850 in savings!**
-
-\*FREE Aromatherapy Kit ($130 value) for first 150 purchasers!
-
-**$150 off DreamBox**
-
-**$150 off pre-built service!**
-
-**Up to $350 off Side-kick options with DreamBox purchase:** $50 off Cubby, $100 off DreamCart, $100 off both Side Tables, $100 off Sew Station
-
-**$65+ additional savings off accessories in the DreamBox Design Studio:**
-
-\- $10 off Power Strip, $10 off 8 Shallow Totes, **$10 off Wallpaper,** $40 off speakers (40% off)
-
-0% APR for 12months available.
-
-__1-4 week shipping time!*__
-
-![](/images/4-10.png)![](/images/mdwithcode2png.PNG)![](/images/3-8.png)![](/images/5-5.png)
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
