@@ -21,6 +21,8 @@ weight = 3
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
+![](/images/createroom_reneemothersday-25.jpg)
+
 # **NEW Wallpaper!**
 
 I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**. Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref=YJvA8).
