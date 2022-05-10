@@ -11,7 +11,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-### The indepence Day sale will be July 1st to July 11th.
+### The **_Indepence Day sale_** will be July 1st to July 11th.
 
 ##### I'll add the discount codes and sale details a few days before the sale.
 
