@@ -15,9 +15,9 @@ weight = 3
 
 ##### Begins at 10 am MT May 30th.
 
-##### **- $150 off the DreamBox + 30% off Wallpaper + 0% financing!**
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGREMEMBER</span> to save $150 or £150! Plus 30% off Wallpaper<span style="font-size:small;"></span></b>
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGREMEMBER</span> to save $150 or £150! <span style="font-size:small;"></span></b>
+##### **- $150 off the DreamBox + 30% off Wallpaper + 0% financing!**
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
