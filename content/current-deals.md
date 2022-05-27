@@ -11,19 +11,23 @@ weight = 3
 
 <span style="color:#000000;">
 
-### The **_Indepence Day sale_** will be July 1st to July 11th.
+### The **_Memorial Day sale_** will be May 30th - June 5, 2022.
 
-##### I'll add the discount codes and sale details a few days before the sale.
+##### Begins 10 am MT.
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGREMEMBER</span> to save $150 or £150! <span style="font-size:small;"></span></b>
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
+![](/images/memorial-day-ig-story-01.jpg)![](/images/memorial-day-ig-story-04.jpg)![](/images/memorial-day-ig-story-05.jpg)
+
 ![](/images/createroom_reneemothersday-25.jpg)
 
 # **NEW Wallpaper!**
+
+Save 30% during the Memorial Day sale! 
 
 I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**. Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref=YJvA8).
 
