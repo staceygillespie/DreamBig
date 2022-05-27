@@ -15,6 +15,8 @@ weight = 3
 
 ##### Begins 10 am MT.
 
+**- $150 off the DreamBox + 30% off Wallpaper + 0% financing!**
+
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGREMEMBER</span> to save $150 or £150! <span style="font-size:small;"></span></b>
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
@@ -27,7 +29,7 @@ weight = 3
 
 # **NEW Wallpaper!**
 
-Save 30% during the Memorial Day sale! 
+Save 30% during the Memorial Day sale!
 
 I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**. Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref=YJvA8).
 
