@@ -15,7 +15,7 @@ weight = 4
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
-The **_Memorial Day sale_** will be May 30th - June 5, 2022.
+The **_Memorial Day sale_** is May 30th - June 5, 2022.
 
 ###### Begins 10 am MT..  The details will be found [here](https://www.dreambigwithstacey.com/current-deals/).
 

@@ -11,11 +11,11 @@ weight = 3
 
 <span style="color:#000000;">
 
-### The **_Memorial Day sale_** will be May 30th - June 5, 2022.
+### The **_Memorial Day sale_** is May 30th - June 5, 2022.
 
-##### Begins 10 am MT.
+##### Begins at 10 am MT May 30th.
 
-**- $150 off the DreamBox + 30% off Wallpaper + 0% financing!**
+##### **- $150 off the DreamBox + 30% off Wallpaper + 0% financing!**
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGREMEMBER</span> to save $150 or £150! <span style="font-size:small;"></span></b>
 
