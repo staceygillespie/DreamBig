@@ -17,7 +17,7 @@ weight = 4
 
 The **_Memorial Day sale_** is May 30th - June 5, 2022.
 
-###### Begins 10 am MT..  The details will be found [here](https://www.dreambigwithstacey.com/current-deals/).
+###### Begins 10 am MT on May 30th.  The details will be found [here](https://www.dreambigwithstacey.com/current-deals/).
 
 Check out the new [DreamBox Wallpaper](https://www.createroom.com/pages/wallpaper-detail?ref=JvA8).
 
