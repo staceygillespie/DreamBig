@@ -11,25 +11,32 @@ weight = 3
 
 <span style="color:#000000;">
 
-### The **_Memorial Day sale_** is May 30th - June 5, 2022.
+### The **_4TH of July sale_** is June 30th - July 11, 2022.
 
-##### Begins at 10 am MT May 30th.
+##### Early access begins at 10 am MT June 30th.
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGREMEMBER</span> to save $150 or £150! Plus 30% off Wallpaper<span style="font-size:small;"></span></b>
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200 ! P<span style="font-size:small;"></span></b>
 
-##### **- $150 off the DreamBox + 30% off Wallpaper + 0% financing!**
+##### **- $200 off the DreamBox +** FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
+
+![](/images/us-code_.jpg)
+
+\- **$200 off DreamBox**   
+ - $100 off pre-built   
+ - $350 off combined Side-kick options w/DreamBox - $50 off Cubby, $100 off Dream Cart, $100 off both Side Tables, Sew Station $150 off   
+ - $10 off power up, Plastic notions $10, $25 off Wallpaper, white magnetic board $15, planner $25 off.
+
+\- FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
-![](/images/memorial-day-ig-story-01.jpg)![](/images/memorial-day-ig-story-04.jpg)![](/images/memorial-day-ig-story-05.jpg)
+![](/images/us-4th-of-july.jpg)
 
 ![](/images/createroom_reneemothersday-25.jpg)
 
 # **NEW Wallpaper!**
-
-Save 30% during the Memorial Day sale!
 
 I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**. Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref=YJvA8).
 
