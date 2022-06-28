@@ -11,6 +11,8 @@ weight = 3
 
 <span style="color:#000000;">
 
+Enter the GIVEAWAY to win one of 3 DreamBoxes and Cricut products before July 6th. [here](https://www.dreambigwithstacey.com/dreambox/)
+
 ### The **_4TH of July sale_** is June 30th - July 11, 2022.
 
 ##### Early access begins at 10 am MT June 30th.
@@ -21,10 +23,11 @@ weight = 3
 
 All SALE discounts:
 
-\- **$200 off DreamBox**   
- - $100 off pre-built   
- - $350 off combined Side-kick options w/DreamBox - $50 off Cubby, $100 off Dream Cart, $100 off both Side Tables, Sew Station $150 off   
- - $10 off power up, Plastic notions $10, $25 off Wallpaper, white magnetic board $15, planner $25 off.
+\- **$200 off DreamBox**
+
+* $100 off pre-built
+* $350 off combined Side-kick options w/DreamBox - $50 off Cubby, $100 off Dream Cart, $100 off both Side Tables, Sew Station $150 off
+* $10 off power up, Plastic notions $10, $25 off Wallpaper, white magnetic board $15, planner $25 off.
 
 \- FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
 
@@ -36,7 +39,7 @@ All SALE discounts:
 
 ![](/images/us-4th-of-july.jpg)![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
-get $150 off the Pre-built option during the 4th of July sale! Your DreamBox will be built in the factory and shipped to you!
+#### Get $150 off the Pre-built option during the 4th of July sale! Your DreamBox will be built in the factory and shipped to you!
 
 ![](/images/createroom_reneemothersday-25.jpg)
 
