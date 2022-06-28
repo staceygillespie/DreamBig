@@ -25,6 +25,10 @@ Check out the new [DreamBox Wallpaper](https://www.createroom.com/pages/wallpape
 
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
+Enter this GIVEAWAY to get your own DreamBox + Cricut products!
+
+[Zooey Deschanel Giveaway](https://www.createroom.com/blogs/news/zooey-deschanel-dreambox?ref=YJvA8)
+
 <span style="float: right;"><img src="/images/dreambox-open.jpg" /></span>
 
 ## Why I Love My [DreamBox](https://www.createroom.com/?ref=YJvA8 "DreamBox")
