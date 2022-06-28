@@ -33,7 +33,11 @@ Check out the new [DreamBox Wallpaper](https://www.createroom.com/pages/wallpape
 
 [Zooey Deschanel Giveaway](https://www.createroom.com/blogs/news/zooey-deschanel-dreambox?ref=YJvA8)
 
-![](/images/1-igstories-zooey-deschanel-cricut-create-room-giveaway-july-2022.png)
+![](/images/1-igstories-zooey-deschanel-cricut-create-room-giveaway-july-2022.png)![](/images/2-igstories-zooey-deschanel-cricut-create-room-giveaway-july-2022.png)![](/images/3-igstories-zooey-deschanel-cricut-create-room-giveaway-july-2022.png)![](/images/dreambox_openandclosed-jpg.webp)
+
+***
+
+![](/images/dreambox-open.jpg)
 
 <span style="float: right;"><img src="/images/dreambox-open.jpg" /></span>
 
