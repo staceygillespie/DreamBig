@@ -15,7 +15,7 @@ weight = 3
 
 ##### Early access begins at 10 am MT June 30th.
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200 ! P<span style="font-size:small;"></span></b>
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200 ! <span style="font-size:small;"></span></b>
 
 ##### **- $200 off the DreamBox +** FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
 
@@ -32,7 +32,9 @@ weight = 3
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
-![](/images/us-4th-of-july.jpg)
+![](/images/us-4th-of-july.jpg)![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
+
+get $150 off the Pre-built option during the 4th of July sale! Your DreamBox will be built in the factory and shipped to you!
 
 ![](/images/createroom_reneemothersday-25.jpg)
 
