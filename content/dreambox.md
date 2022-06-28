@@ -15,13 +15,13 @@ weight = 4
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
-The **_Memorial Day sale_** is May 30th - June 5, 2022.
+The **_4th of July sale_** is June 30th - July 11, 2022.
 
-###### Begins 10 am MT on May 30th.  The details will be found [here](https://www.dreambigwithstacey.com/current-deals/).
+###### Begins 10 am MT on June 30th.  The details will be found [here](https://www.dreambigwithstacey.com/current-deals/).
 
 Check out the new [DreamBox Wallpaper](https://www.createroom.com/pages/wallpaper-detail?ref=JvA8).
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200 or £10% off <span style="font-size:small;"</span></b>
 
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
