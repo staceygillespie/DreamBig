@@ -19,7 +19,7 @@ weight = 3
 
 ##### **- $200 off the DreamBox +** FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
 
-![](/images/us-code_.jpg)
+All SALE discounts:
 
 \- **$200 off DreamBox**   
  - $100 off pre-built   
@@ -27,6 +27,8 @@ weight = 3
  - $10 off power up, Plastic notions $10, $25 off Wallpaper, white magnetic board $15, planner $25 off.
 
 \- FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
+
+![](/images/us-code_.jpg)
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
