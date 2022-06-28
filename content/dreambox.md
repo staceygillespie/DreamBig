@@ -37,8 +37,6 @@ Check out the new [DreamBox Wallpaper](https://www.createroom.com/pages/wallpape
 
 ***
 
-![](/images/dreambox-open.jpg)
-
 <span style="float: right;"><img src="/images/dreambox-open.jpg" /></span>
 
 ## Why I Love My [DreamBox](https://www.createroom.com/?ref=YJvA8 "DreamBox")
