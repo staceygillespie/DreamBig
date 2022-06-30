@@ -17,6 +17,8 @@ Enter the GIVEAWAY to win one of 3 DreamBoxes and Cricut products before July 6t
 
 ##### Early access begins at 10 am MST June 30th.
 
+In Canada<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGCA</span> to save $260! <span style="font-size:small;"></span></b>
+
 In Canada<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGCA</span> to save $260 in Canada.
 
 In the UK/EU<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGUK</span> to save £10% during the summersale in the UK/EU.
