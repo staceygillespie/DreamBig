@@ -15,7 +15,7 @@ Enter the GIVEAWAY to win one of 3 DreamBoxes and Cricut products before July 6t
 
 ### The **_4TH of July sale_** is June 30th - July 11, 2022.
 
-##### Early access begins at 10 am MT June 30th.
+##### Early access begins at 10 am MST June 30th.
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200! <span style="font-size:small;"></span></b>
 
