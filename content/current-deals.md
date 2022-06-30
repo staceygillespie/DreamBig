@@ -19,6 +19,10 @@ Enter the GIVEAWAY to win one of 3 DreamBoxes and Cricut products before July 6t
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200 ! <span style="font-size:small;"></span></b>
 
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSTIPES</span> to save 10% off the Sew Station, DreamCart or Cubby. <span style="font-size:small;"></span></b>
+
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSTARS</span> to save 20% off accessories <span style="font-size:small;"></span></b>
+
 ##### **- $200 off the DreamBox +** FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
 
 All SALE discounts:
