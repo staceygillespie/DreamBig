@@ -23,9 +23,9 @@ Check out the new [DreamBox Wallpaper](https://www.createroom.com/pages/wallpape
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200!
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGCA</span> to save $260 in Canada.
+In Canada:<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGCA</span> to save $260! <span style="font-size:small;"></span></b>
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGUK</span> to save £10% during the summersale in the UK/EU.
+In the UK?EU:<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGUK</span> to save 10% off EVERYTHING! <span style="font-size:small;"></span></b>
 
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
