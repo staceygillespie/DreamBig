@@ -17,13 +17,11 @@ Enter the GIVEAWAY to win one of 3 DreamBoxes and Cricut products before July 6t
 
 ##### Early access begins at 10 am MST June 30th.
 
-In Canada<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGCA</span> to save $260! <span style="font-size:small;"></span></b>
+In Canada<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGCA</span> to save $260! <span style="font-size:small;"></span></b>
 
-In Canada<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGCA</span> to save $260 in Canada.
+In the UK?EU<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGUK</span> to save 10% opff EVERYTHING! <span style="font-size:small;"></span></b>
 
-In the UK/EU<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGUK</span> to save £10% during the summersale in the UK/EU.
-
-In the USA<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200! <span style="font-size:small;"></span></b>
+In the USA<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200! <span style="font-size:small;"></span></b>
 
 ##### **- $200 off the DreamBox +** FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
 
