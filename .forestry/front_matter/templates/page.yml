@@ -11,6 +11,13 @@ fields:
 - type: text
   name: description
   label: description
+- name: verification
+  type: text
+  config:
+    required: false
+  label: verification
+  hidden: true
+  default: "<meta name='ir-site-verification-token' value='854133576'>"
 pages:
 - content/_index.md
 - content/current-deals.md

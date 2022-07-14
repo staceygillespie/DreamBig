@@ -2,6 +2,7 @@
 title: Dare to Dream Big
 featured_image: "/images/dreambox-open.jpg"
 description: ''
+verification: ''
 
 ---
 <body style="background-color:#fff1d9;">
