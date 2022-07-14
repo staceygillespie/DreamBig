@@ -15,17 +15,9 @@ weight = 4
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
-The **_4th of July sale_** is June 30th - July 11, 2022.
-
-###### Begins 10 am MT on June 30th.  The details will be found [here](https://www.dreambigwithstacey.com/current-deals/).
-
 Check out the new [DreamBox Wallpaper](https://www.createroom.com/pages/wallpaper-detail?ref=JvA8).
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200!
-
-In Canada:<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGCA</span> to save $260! <span style="font-size:small;"></span></b>
-
-In the UK/EU:<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGUK</span> to save 10% off EVERYTHING! <span style="font-size:small;"></span></b>
+<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100!
 
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
@@ -33,11 +25,7 @@ In the UK/EU:<b> use the code <span style="color:#bf6667;font-size:xx-large;">DR
 
 ***
 
-### Enter this GIVEAWAY to get your own DreamBox + Cricut products!
-
-[Zooey Deschanel Giveaway](https://www.createroom.com/blogs/news/zooey-deschanel-dreambox?ref=YJvA8)
-
-![](/images/1-igstories-zooey-deschanel-cricut-create-room-giveaway-july-2022.png)![](/images/2-igstories-zooey-deschanel-cricut-create-room-giveaway-july-2022.png)![](/images/3-igstories-zooey-deschanel-cricut-create-room-giveaway-july-2022.png)![](/images/dreambox_openandclosed-jpg.webp)
+![](/images/dreambox_openandclosed-jpg.webp)
 
 ***
 
