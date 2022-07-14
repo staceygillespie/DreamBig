@@ -2,6 +2,7 @@
 description = "Exclusive limited-time sales while supplies last!"
 featured_image = "/images/createroom_reneemothersday-15.jpg"
 title = "Current Deals"
+verification = ""
 [menu.main]
 name = "Deals"
 weight = 3
@@ -11,45 +12,17 @@ weight = 3
 
 <span style="color:#000000;">
 
-Enter the GIVEAWAY to win one of 3 DreamBoxes and Cricut products before July 6th. [here](https://www.dreambigwithstacey.com/dreambox/)
+### No current sale or deal.
 
-### The **_4TH of July sale_** is June 30th - July 11, 2022.
-
-##### Early access begins at 10 am MST June 30th.
-
-In Canada:<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGCA</span> to save $260! <span style="font-size:small;"></span></b>
-
-In the UK/EU:<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGUK</span> to save 10% off EVERYTHING! <span style="font-size:small;"></span></b>
-
-In the USA:<b> use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200! <span style="font-size:small;"></span></b>
-
-##### **- $200 off the DreamBox +** FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
-
-All USA SALE discounts:
-
-\- **$200 off DreamBox**
-
-* $100 off pre-built
-* $350 off combined Side-kick options w/DreamBox - $50 off Cubby, $100 off Dream Cart, $100 off both Side Tables, Sew Station $150 off
-* $10 off power up, Plastic notions $10, $25 off Wallpaper, white magnetic board $15, planner $25 off.
-
-\- FREE Gift ($115 value) for first 145 orders: Tote Lids, Crafter's Caddy, Cutting Mat AND 1-3 week shipping times!
-
-![](/images/us-code_.jpg)
-
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSTIPES</span> to save 10% off the Sew Station, DreamCart or Cubby whhen your are not buying a DreamBox. <span style="font-size:small;"></span></b>
-
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSTARS</span> to save 20% off ALL accessories <span style="font-size:small;"></span></b>
+I
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
+![](/images/createroom_reneemothersday-25.jpg)
+
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
-![](/images/us-4th-of-july.jpg)![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
-
-#### Get $150 off the Pre-built option during the 4th of July sale! Your DreamBox will be built in the factory and shipped to you!
-
-![](/images/createroom_reneemothersday-25.jpg)
+![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
 # **NEW Wallpaper!**
 
