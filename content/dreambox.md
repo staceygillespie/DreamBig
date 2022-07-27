@@ -15,6 +15,8 @@ weight = 4
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
+See my set up on August 11th on a zoom call! [here](https://www.dreambigwithstacey.com/current-deals/)
+
 Check out the new [DreamBox Wallpaper](https://www.createroom.com/pages/wallpaper-detail?ref=JvA8).
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100!
