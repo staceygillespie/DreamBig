@@ -12,9 +12,11 @@ weight = 3
 
 <span style="color:#000000;">
 
-### No current sale or deal.
+### Join the CREATOR CLUB to learn about the latest discount on the DreamBox! [here](https://www.createroom.com/pages/creator-club-landing?ref=YJvA8)
 
-I
+During the August 11, 2022 CREATOR CLUB I will be showing those who attend this virtual meeting both my DreamBox and Sew Station AND I will show you the steps to sewing a cute floppy bear called the KimberBear.  You cna get the FREE pattern for both the sewing and machine embroidery versions here: [KimberBear patterns](https://kimberbell.com/product/kimberbear/)
+
+Join my Facebook page: [KimberBears for Children in Need]() to share who you've made a KimberBear for.
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
