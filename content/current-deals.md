@@ -18,6 +18,10 @@ During the August 11, 2022 CREATOR CLUB I will be showing those who attend this 
 
 Join my Facebook page: [KimberBears for Children in Need ](https://www.facebook.com/groups/1154447808755842)to share who you've made a KimberBear for.
 
+Find the supplies needed and sewing tutorials at [Shannon Fabrics](https://blog.shannonfabrics.com/blog/kimberbear-stuffed-bear).
+
+How to aattch the [head](https://blog.shannonfabrics.com/blog/kimberbear-stuffed-bear).
+
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
 ![](/images/createroom_reneemothersday-25.jpg)
