@@ -14,8 +14,12 @@ weight = 3
 
 BACK to SCHOOL sale begins Sept 2nd, 2022 at10am MST [here](https://glnk.io/mzjn8/staceycarrgillespiebacktoschool )
 
+The sale ends Sept 6th.
+
 **Up to $750 in savings!**  
-\**First 130 orders receive: FREE Planner + Crafter's Caddy ($78 value)! Get EARLY ACCESS using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>!
+\**First 130 orders receive: FREE Planner + Crafter's Caddy ($78 value)! 
+
+Get EARLY ACCESS using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>!
 
 All the following will be applied with the code **DREAMBIG**:
 
@@ -49,7 +53,9 @@ $50 off BOTH [**Side Tables**](https://www.createroom.com/products/side-tables?r
 
 ![](/images/create-room-side-tables-bts-sale.jpg)
 
-FREE [planner](https://www.createroom.com/products/planner?ref=YJvA8) and [Crafter's Caddy]()
+$150 OFF the [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) with LIGHT
+
+FREE [Planne](https://www.createroom.com/products/planner?ref=YJvA8)r and [Crafter's Caddy]()
 
 ![](/images/copy-of-createroom_jenhadfieldvalentines-1158.jpg)
 
