@@ -12,19 +12,20 @@ weight = 3
 
 <span style="color:#000000;">
 
-BACK to SCHOOL sale! 
+BACK to SCHOOL sale!
 
 Begins Sept 2nd, 2022 at 10am MST [here](https://glnk.io/mzjn8/staceycarrgillespiebacktoschool )
 
 **Up to $750 in savings!**  
- **First 130 orders receive: FREE Planner + Crafter's Caddy ($78 value)! Get EARLY ACCESS using my code: **DREAMBIG**
+\**First 130 orders receive: FREE Planner + Crafter's Caddy ($78 value)! Get EARLY ACCESS using my code:<b>Use the code <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>!
 
-All the following will be applied with the code **DREAMBIG**:  
- - $200 off DreamBox  
- - $150 off the Crown   
- - $22 off Paper Organizer  
- Up to $300 off side kick options (with DreamBox purchase)  
- - $50 off Cubby, $100 off Dream Cart, $50 off both Side Tables, $100 off Sew Station
+All the following will be applied with the code **DREAMBIG**:
+
+* $200 off DreamBox
+* $150 off the Crown
+* $22 off Paper Organizer  
+  Up to $300 off side kick options (with DreamBox purchase)
+* $50 off Cubby, $100 off Dream Cart, $50 off both Side Tables, $100 off Sew Station
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
@@ -42,7 +43,7 @@ All the following will be applied with the code **DREAMBIG**:
 
 ![](/images/create-room-sew-station-bts-sale.jpg)
 
-$100 OFF the [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8) 
+$100 OFF the [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
 ![](/images/create-room-dreamcart-bts-sale.jpg)
 
