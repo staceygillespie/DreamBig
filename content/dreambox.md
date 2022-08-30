@@ -29,7 +29,7 @@ weight = 4
 
 <span style="float: right;"><img src="/images/dreambox-open.jpg" /></span>
 
-## Why I Love My [DreamBox](https://www.createroom.com/?ref=YJvA8 "DreamBox")
+## Why I Love My DreamBox 
 
 Check out the NEW Products [Here](/current-deals/ "Deal page").
 
