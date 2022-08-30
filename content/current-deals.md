@@ -12,9 +12,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-BACK to SCHOOL sale!
-
-Begins Sept 2nd, 2022 at 10am MST [here](https://glnk.io/mzjn8/staceycarrgillespiebacktoschool )
+BACK to SCHOOL sale begins Sept 2nd, 2022 at10am MST [here](https://glnk.io/mzjn8/staceycarrgillespiebacktoschool )
 
 **Up to $750 in savings!**  
 \**First 130 orders receive: FREE Planner + Crafter's Caddy ($78 value)! Get EARLY ACCESS using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>!
