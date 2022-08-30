@@ -12,9 +12,41 @@ weight = 3
 
 <span style="color:#000000;">
 
-### Join the CREATOR CLUB to learn about the latest discount on the DreamBox! [here](https://www.createroom.com/pages/creator-club-landing?ref=YJvA8)
+BACK to SCHOOL sale! 
 
-During the August 11, 2022 CREATOR CLUB I will be showing those who attend this virtual meeting both my DreamBox and Sew Station AND I will show you the steps to sewing a cute floppy bear called the KimberBear.  You can get the FREE pattern for both the sewing and machine embroidery versions here: [KimberBear patterns](https://kimberbell.com/product/kimberbear/)
+Begins Sept 2nd, 2022 at 10am MST [here](https://glnk.io/mzjn8/staceycarrgillespiebacktoschool )
+
+**Up to $750 in savings!**  
+ **First 130 orders receive: FREE Planner + Crafter's Caddy ($78 value)! Get EARLY ACCESS using my code: **DREAMBIG**
+
+All the following will be applied with the code **DREAMBIG**:  
+ - $200 off DreamBox  
+ - $150 off the Crown   
+ - $22 off Paper Organizer  
+ Up to $300 off side kick options (with DreamBox purchase)  
+ - $50 off Cubby, $100 off Dream Cart, $50 off both Side Tables, $100 off Sew Station
+
+##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
+
+![](/images/cr-back-to-school-3.jpg)
+
+**0%Financing Offer Starts 8/1!**
+
+0% financing starting 8/1 to pay for your DreamBox with NO interest over time.
+
+**$50 off the** [**CUBBY**](https://www.createroom.com/products/cubby?ref=YJvA8)![](/images/create-room-cubby-bts-sale.jpg)
+
+**$100 off the** [**SEW STATION**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
+
+![](/images/create-room-sew-station-bts-sale.jpg)
+
+$100 OFF the [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8) 
+
+![](/images/create-room-dreamcart-bts-sale.jpg)
+
+$50 off BOTH [**Side Tables**](https://www.createroom.com/products/side-tables?ref=YJvA8)
+
+![](/images/create-room-side-tables-bts-sale.jpg)
 
 Join my Facebook page: [KimberBears for Children in Need ](https://www.facebook.com/groups/1154447808755842)to share who you've made a KimberBear for.
 
@@ -24,7 +56,7 @@ Find the supplies needed and sewing tutorials at [Shannon Fabrics](https://blog.
 
 Learn how to attach the [head](https://blog.shannonfabrics.com/blog/kimberbear-stuffed-bear).
 
-##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
+##### 
 
 ![](/images/createroom_reneemothersday-25.jpg)
 
