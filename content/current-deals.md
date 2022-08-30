@@ -55,7 +55,7 @@ $50 off BOTH [**Side Tables**](https://www.createroom.com/products/side-tables?r
 
 $150 OFF the [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) with LIGHT
 
-FREE [Planne](https://www.createroom.com/products/planner?ref=YJvA8)r and [Crafter's Caddy]()
+FREE [Planne](https://www.createroom.com/products/planner?ref=YJvA8)r and [Crafter's Caddy]( https://www.createroom.com/collections/accessories/products/crafters-caddy?ref=YJvA8)
 
 ![](/images/create-room-gifts-bts.JPG)
 
