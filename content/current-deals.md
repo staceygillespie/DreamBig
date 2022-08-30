@@ -28,11 +28,13 @@ All the following will be applied with the code **DREAMBIG**:
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
 
-![](/images/cr-back-to-school-3.jpg)
+![](/images/cr-back-to-school-3.jpg)![](/images/dreambox_openandclosed-jpg.webp)
 
 **0%Financing Offer Starts 8/1!**
 
 0% financing starting 8/1 to pay for your DreamBox with NO interest over time.
+
+###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
 **$50 off the** [**CUBBY**](https://www.createroom.com/products/cubby?ref=YJvA8)![](/images/create-room-cubby-bts-sale.jpg)
 
@@ -48,6 +50,16 @@ $50 off BOTH [**Side Tables**](https://www.createroom.com/products/side-tables?r
 
 ![](/images/create-room-side-tables-bts-sale.jpg)
 
+FREE [planner](https://www.createroom.com/products/planner?ref=YJvA8) and [Crafter's Caddy]()
+
+![](/images/copy-of-createroom_jenhadfieldvalentines-1158.jpg)
+
+![](/images/copy-of-createroom_jenhadfieldvalentines-1179.jpg)
+
+You can get your DreamBox **prebuilt!**
+
+![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
+
 Join my Facebook page: [KimberBears for Children in Need ](https://www.facebook.com/groups/1154447808755842)to share who you've made a KimberBear for.
 
 ![](/images/kimberbear-pic.jpg)
@@ -55,14 +67,6 @@ Join my Facebook page: [KimberBears for Children in Need ](https://www.facebook.
 Find the supplies needed and sewing tutorials at [Shannon Fabrics](https://blog.shannonfabrics.com/blog/kimberbear-stuffed-bear).
 
 Learn how to attach the [head](https://blog.shannonfabrics.com/blog/kimberbear-stuffed-bear).
-
-##### 
-
-![](/images/createroom_reneemothersday-25.jpg)
-
-###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
-
-![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
 # **NEW Wallpaper!**
 
