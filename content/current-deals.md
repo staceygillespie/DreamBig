@@ -19,7 +19,7 @@ The sale ends Sept 6th.
 **Up to $750 in savings!**  
 \**First 130 orders receive: FREE Planner + Crafter's Caddy ($78 value)!
 
-Get EARLY ACCESS using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>!
+Get EARLY ACCESS using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>
 
 All the following will be applied with the code **DREAMBIG**:
 
@@ -29,7 +29,7 @@ All the following will be applied with the code **DREAMBIG**:
   Up to $300 off side kick options (with DreamBox purchase)
 * $50 off Cubby, $100 off Dream Cart, $50 off both Side Tables, $100 off Sew Station
 
-Get 20% off all ACCESSORIES using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG20**</span>!
+Get 20% off all ACCESSORIES using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG20**</span>
 
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=YJvA8 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](https://www.createroom.ca/?ref=YJvA8 "Canada Link")
 
