@@ -15,8 +15,6 @@ weight = 4
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
-<b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $200 OFF the DREAMBOX and up to $750 with other discounts during the Back to School Sale! Check out all the details [here](https://www.dreambigwithstacey.com/current-deals/).
-
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=YJvA8 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](https://www.createroom.ca/?ref=YJvA8 "Canada Link")
 
 ***
@@ -29,7 +27,7 @@ weight = 4
 
 <span style="float: right;"><img src="/images/dreambox-open.jpg" /></span>
 
-## Why I Love My DreamBox 
+## Why I Love My DreamBox
 
 Check out the NEW Products [Here](/current-deals/ "Deal page").
 
