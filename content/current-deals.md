@@ -12,52 +12,31 @@ weight = 3
 
 <span style="color:#000000;">
 
-**BACK to SCHOOL** sale **begins Sept 2nd**, 2022 at**10am MST** [here](https://www.createroom.com/pages/school-sale-early-access?ref=YJvA8)
-
-The sale ends Sept 6th.
-
-**Up to $750 in savings!**  
-\**First 130 orders receive: FREE Planner + Crafter's Caddy ($78 value)!
-
-Get EARLY ACCESS using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>
-
-All the following will be applied with the code **DREAMBIG**:
-
-* $200 off DreamBox
-* $150 off the Crown
-* $22 off Paper Organizer  
-  Up to $300 off side kick options (with DreamBox purchase)
-* $50 off Cubby, $100 off Dream Cart, $50 off both Side Tables, $100 off Sew Station
-
-Get 20% off all ACCESSORIES using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG20**</span>
+Get a discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>
 
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=YJvA8 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](https://www.createroom.ca/?ref=YJvA8 "Canada Link")
 
-![](/images/cr-back-to-school-3.jpg)![](/images/dreambox_openandclosed-jpg.webp)
-
-**0%Financing Offer Starts 8/1!**
-
-0% financing starting 8/1 to pay for your DreamBox with NO interest over time.
+![](/images/dreambox_openandclosed-jpg.webp)
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
 
-**$50 off the** [**CUBBY**](https://www.createroom.com/products/cubby?ref=YJvA8)![](/images/create-room-cubby-bts-sale.jpg)
+**The** [**CUBBY**](https://www.createroom.com/products/cubby?ref=YJvA8)![](/images/create-room-cubby-bts-sale.jpg)
 
-**$100 off the** [**SEW STATION**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
+**The** [**SEW STATION**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
 ![](/images/create-room-sew-station-bts-sale.jpg)
 
-$100 OFF the [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
+The [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
 ![](/images/create-room-dreamcart-bts-sale.jpg)
 
-$50 off BOTH [**Side Tables**](https://www.createroom.com/products/side-tables?ref=YJvA8)
+The [**Side Tables**](https://www.createroom.com/products/side-tables?ref=YJvA8)
 
 ![](/images/create-room-side-tables-bts-sale.jpg)
 
-$150 OFF the [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) with LIGHT
+The [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) with LIGHT
 
-FREE [Planne](https://www.createroom.com/products/planner?ref=YJvA8)r and [Crafter's Caddy]( https://www.createroom.com/collections/accessories/products/crafters-caddy?ref=YJvA8)
+ [Planne](https://www.createroom.com/products/planner?ref=YJvA8)r and [Crafter's Caddy](https://www.createroom.com/collections/accessories/products/crafters-caddy?ref=YJvA8)
 
 ![](/images/create-room-gifts-bts.JPG)
 
