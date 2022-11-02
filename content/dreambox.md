@@ -13,7 +13,9 @@ weight = 4
 
 <span style="color:#000000;">
 
-Be the first to know about the Black Friday deals! <b> <span style="color:#bf6667;font-size:xx-large;">[**Sign Up Here**](https://form.jotform.com/223055001203030)</span>
+**Be the first to know** about the **Black Friday** deals! <b> <span style="color:#bf6667;font-size:xx-large;">[**Sign Up Here**](https://form.jotform.com/223055001203030)</span>
+
+Book a **One on One Consulation** with me <b> <span style="color:#bf6667;font-size:xx-large;">[**Sign Up Here**](https://calendly.com/staceycreateroom)</span>
 
 <b> <span style="color:#bf6667;font-size:xx-large; </span>
 

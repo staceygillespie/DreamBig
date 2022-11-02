@@ -12,6 +12,10 @@ weight = 3
 
 <span style="color:#000000;">
 
+**Be the first to know** about the **Black Friday** deals! <b> <span style="color:#bf6667;font-size:xx-large;">[**Sign Up Here**](https://form.jotform.com/223055001203030)</span>
+
+Book a **One on One Consulation** with me <b> <span style="color:#bf6667;font-size:xx-large;">[**Sign Up Here**](https://calendly.com/staceycreateroom)</span>
+
 Get a discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>
 
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=YJvA8 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](https://www.createroom.ca/?ref=YJvA8 "Canada Link")
@@ -36,7 +40,7 @@ The [**Side Tables**](https://www.createroom.com/products/side-tables?ref=YJvA8)
 
 The [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) with LIGHT
 
- [Planne](https://www.createroom.com/products/planner?ref=YJvA8)r and [Crafter's Caddy](https://www.createroom.com/collections/accessories/products/crafters-caddy?ref=YJvA8)
+[Planne](https://www.createroom.com/products/planner?ref=YJvA8)r and [Crafter's Caddy](https://www.createroom.com/collections/accessories/products/crafters-caddy?ref=YJvA8)
 
 ![](/images/create-room-gifts-bts.JPG)
 
