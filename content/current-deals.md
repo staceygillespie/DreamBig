@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/createroom_reneemothersday-15.jpg"
+featured_image = "/images/pre-black-friday-affiliate-07.jpg"
 title = "Current Deals"
 verification = ""
 [menu.main]
