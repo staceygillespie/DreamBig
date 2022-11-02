@@ -16,7 +16,7 @@ weight = 3
 
 Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://calendly.com/staceycreateroom)</span>
 
-Get a discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>
+Get a $150 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY150**</span>
 
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=YJvA8 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](https://www.createroom.ca/?ref=YJvA8 "Canada Link")
 
