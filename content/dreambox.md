@@ -2,7 +2,7 @@
 date = 2021-03-28T02:18:30Z
 description = "I went from clutter to organizational joy"
 disable_share = false
-featured_image = "/images/pre-black-friday-affiliate-06.jpg"
+featured_image = "/images/stacey-gillespie-2-17-22-55.jpg"
 tags = []
 title = "DreamBox"
 [menu.main]
@@ -17,9 +17,7 @@ weight = 4
 
 Find out more about the Black Friday sale [here](https://www.dreambigwithstacey.com/current-deals/).
 
-Book a **One on One Consulation** with me <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://calendly.com/staceycreateroom)</span>
-
-<b> <span style="color:#bf6667;font-size:xx-large; </span>
+Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://calendly.com/staceycreateroom)</span>
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
