@@ -2,7 +2,7 @@
 date = 2021-03-28T02:18:30Z
 description = "I went from clutter to organizational joy"
 disable_share = false
-featured_image = "/images/pre-black-friday-affiliate-07.jpg"
+featured_image = "/images/pre-black-friday-affiliate-06.jpg"
 tags = []
 title = "DreamBox"
 [menu.main]
