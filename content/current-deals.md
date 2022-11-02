@@ -12,9 +12,9 @@ weight = 3
 
 <span style="color:#000000;">
 
-**Be the first to know** about the **Black Friday** deals! <b> <span style="color:#bf6667;font-size:xx-large;">[**Sign Up Here**](https://form.jotform.com/223055001203030)</span>
+**Be the first to know** about the **Black Friday** deals! <b> <span style="color:#bf6667;font-size:xx-large;">[**HERE**](https://form.jotform.com/223055001203030)</span>
 
-Book a **One on One Consulation** with me <b> <span style="color:#bf6667;font-size:xx-large;">[**Sign Up Here**](https://calendly.com/staceycreateroom)</span>
+Book a **One on One Consulation** with me <b> <span style="color:#bf6667;font-size:xx-large;">[**HERE**](https://calendly.com/staceycreateroom)</span>
 
 Get a discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**DREAMBIG**</span>
 
