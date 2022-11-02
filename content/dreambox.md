@@ -13,11 +13,11 @@ weight = 4
 
 <span style="color:#000000;">
 
-**Be the first to know** about the **Black Friday** deals! <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://form.jotform.com/223055001203030)</span>
+**Be the FIRST TO KNOW** about the **Black Friday** deals! <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://form.jotform.com/223055001203030)</span>
 
 Find out more about the Black Friday sale [here](https://www.dreambigwithstacey.com/current-deals/).
 
-Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://calendly.com/staceycreateroom)</span>
+###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://calendly.com/staceycreateroom)</span>
 
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
 
