@@ -39,7 +39,9 @@ Get 20% off all accessories! Use my code:<b> <span style="color:#bf6667;font-siz
 
 #### Purchasing the DreamBox in the [US](www.createroom.com/?srrf=HbnB5), [UK/EU](), [Canada](www.createroom.com/?srrf=HbnB5)
 
-![](/images/dreambox_openandclosed-jpg.webp)
+![](/images/bf_details-002.jpg)
+
+![](/images/bf_3.png)![](/images/dreambox_openandclosed-jpg.webp)
 
 **$50 off the** [**CUBBY**](https://www.createroom.com/products/cubby?srrf=HbnB5)![](/images/create-room-cubby-bts-sale.jpg)
 
