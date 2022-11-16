@@ -12,11 +12,28 @@ weight = 3
 
 <span style="color:#000000;">
 
-**Be the FIRST TO KNOW** about the **Black Friday** deals! <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://form.jotform.com/223055001203030)</span>
+**The Black Friday sale start Friday Nov 18th!**  
+ **Early Access starts at 10 am MST**  
+ **$1000+ in Savings**
+
+Get a $250 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY250**</span>
+
+The first 375 get to choose a free gift (a Planner, Crafter's Caddy, or Aroma Kit (Up to $90) **only 125 of each**  
+ -$250 off DreamBox (use the code:STACEY250)  
+ -$200 off Pre-built  
+ -$50 off Crown  
+ -Up to $325 off side kick options  
+\- - $50 off the Cubby, $50 off both Side Tables  
+\- - $125 off the Sew Station, $100 off the DreamCart (no code necessary)  
+ -**-** $10 off the Power Strip, $20 off Organizing Essentials, $50 off Power Package, $20 off swing door accessories
+
+If you only want some accessories they are 20% off (with the code STACEY20)
+
+[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Sales Ambassador, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order so you can guarantee that you are one of the first and will get your FREE gift! Just let me know which gift you'd like!
 
 ###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://calendly.com/staceycreateroom)</span>
 
-Get a $150 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY150**</span>
+Get a $250 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY250**</span>
 
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=YJvA8 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](https://www.createroom.ca/?ref=YJvA8 "Canada Link")
 
