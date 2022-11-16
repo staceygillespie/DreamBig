@@ -35,27 +35,29 @@ If you only want some accessories they are 20% off (with the code STACEY20)
 
 Get a $250 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY250**</span>
 
+Get 20% off all accessories! Use my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY20**</span>
+
 #### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=YJvA8 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](https://www.createroom.ca/?ref=YJvA8 "Canada Link")
 
 ![](/images/dreambox_openandclosed-jpg.webp)
 
-###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. _*Create Room compensates me when you use my code or links._
-
 **The** [**CUBBY**](https://www.createroom.com/products/cubby?ref=YJvA8)![](/images/create-room-cubby-bts-sale.jpg)
 
-**The** [**SEW STATION**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
+**$125 off the** [**SEW STATION**](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)
 
-![](/images/create-room-sew-station-bts-sale.jpg)
+![](/images/gillespie-stacey4-27-21-55.jpg)
 
-The [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
+ **$100 off the** [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
 ![](/images/create-room-dreamcart-bts-sale.jpg)
 
-The [**Side Tables**](https://www.createroom.com/products/side-tables?ref=YJvA8)
+**$50 off the** [**Side Tables**](https://www.createroom.com/products/side-tables?ref=YJvA8)
 
 ![](/images/create-room-side-tables-bts-sale.jpg)
 
 The [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?ref=YJvA8) with LIGHT
+
+[bf_5.mp4](/images/bf_5.mp4 "bf_5.mp4")
 
 [Planne](https://www.createroom.com/products/planner?ref=YJvA8)r and [Crafter's Caddy](https://www.createroom.com/collections/accessories/products/crafters-caddy?ref=YJvA8)
 
