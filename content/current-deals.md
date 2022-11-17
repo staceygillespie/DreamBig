@@ -1,5 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
+draft = true
 featured_image = "/images/pre-black-friday-affiliate-07.jpg"
 title = "Current Deals"
 verification = ""
