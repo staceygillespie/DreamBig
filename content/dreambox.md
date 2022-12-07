@@ -19,7 +19,7 @@ weight = 4
 
 More about the Christmas sale [here](https://www.dreambigwithstacey.com/current-deals/).
 
-###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:large;">by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).</span>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).</span>
+###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).<
 
 #### 
 
