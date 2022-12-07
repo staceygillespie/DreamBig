@@ -20,27 +20,25 @@ Sign up [here](https://form.jotform.com/Gillespie_Stacey/christmas-sale) to find
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order so you can guarantee that you are one of the first and will get your FREE gift! Just let me know which gift you'd like!
 
-###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">by [zoom]( https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
+###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
 
 Get a $100 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>
 
-#### Purchasing the DreamBox in the [US](www.createroom.com/?srrf=HbnB5), [UK/EU](), [Canada](www.createroom.com/?srrf=HbnB5)
+#### Purchasing the DreamBox in the [US](www.createroom.com/?srrf=HbnB5 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")
 
-![](/images/bf_details-002.jpg)
+![](/images/dreambox_openandclosed-jpg.webp)
 
-![](/images/bf_3.png)![](/images/dreambox_openandclosed-jpg.webp)
+**$50 off the** [**CUBBY**](https://www.createroom.com/products/cubby?srrf=HbnB5)**. Use the code STACEY50**![](/images/create-room-cubby-bts-sale.jpg)
 
-**$50 off the** [**CUBBY**](https://www.createroom.com/products/cubby?srrf=HbnB5)![](/images/create-room-cubby-bts-sale.jpg)
-
-**$125 off the**  [**SEW STATION**](https://www.createroom.com/collections/furniture/products/sew-station?srrf=HbnB5)
+**$75 off the**  [**SEW STATION**](https://www.createroom.com/collections/furniture/products/sew-station?srrf=HbnB5)**.  Use the code STACEY75**
 
 ![](/images/gillespie-stacey4-27-21-55.jpg)
 
-**$100 off the** [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?rsrrf=HbnB58)
+**$50 off the** [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?rsrrf=HbnB58)**.  Use the code STACEY50**
 
 ![](/images/create-room-dreamcart-bts-sale.jpg)
 
-**$50 off the**  [**Side Tables**](https://www.createroom.com/products/side-tables?rsrrf=HbnB5)
+**$50 off the**  [**Side Tables**](https://www.createroom.com/products/side-tables?rsrrf=HbnB5)**.  Use the code STACEY50**
 
 ![](/images/create-room-side-tables-bts-sale.jpg)
 
@@ -55,8 +53,6 @@ The [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?srrf=H
 ![](/images/copy-of-createroom_jenhadfieldvalentines-1179.jpg)
 
 You can get your DreamBox **prebuilt!**
-
-![](/images/bf_4.png)
 
 ![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
