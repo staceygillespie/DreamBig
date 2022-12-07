@@ -13,17 +13,15 @@ weight = 4
 
 <span style="color:#000000;">
 
-###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).</span>
-
-###### 
-
-###### <span style="color:#bf6667;font-size:xx-large;"> **Be the FIRST TO KNOW** about the **Christmas** deals! <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://form.jotform.com/Gillespie_Stacey/christmas-sale)</span> 
-
-Find out more about the Christmas sale [here](https://www.dreambigwithstacey.com/current-deals/).
-
-###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).</span>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).</span>
-
 #### The [DreamBox](https://www.createroom.com/?ref=YJvA8 "US link") is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!
+
+###### <span style="color:#bf6667;font-size:xx-large;"> **Be the FIRST TO KNOW** about the **Christmas** deals! <b> <span style="color:#bf6667;font-size:large;">[HERE](https://form.jotform.com/Gillespie_Stacey/christmas-sale)</span> 
+
+More about the Christmas sale [here](https://www.dreambigwithstacey.com/current-deals/).
+
+###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:large;">by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).</span>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).</span>
+
+#### 
 
 #### Purchasing the DreamBox in the [US](www.createroom.com/?srrf=HbnB5 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")
 
