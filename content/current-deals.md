@@ -18,7 +18,7 @@ Sign up [here](https://form.jotform.com/Gillespie_Stacey/christmas-sale) to find
 
 ![](/images/dreambox-christmas.JPG)
 
-[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order so you can guarantee that you are one of the first and will get your FREE gift! Just let me know which gift you'd like!
+[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order so you can be one of the first and will get your FREE gift! 
 
 ###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
 
