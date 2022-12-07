@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/pre-black-friday-affiliate-07.jpg"
+featured_image = "/images/2a9e488d-6555-4a8b-989b-9b0a4fbaf6eb.jpg"
 title = "Current Deals"
 verification = ""
 [menu.main]
@@ -12,30 +12,17 @@ weight = 3
 
 <span style="color:#000000;">
 
-**The Black Friday sale start Friday Nov 18th!**  
- **Early Access starts at 10 am MST**  
- **$1000+ in Savings**
+**The Christmas sale starts Friday, Dec 16th!**
 
-Get a $250 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY250**</span>
+Sign up [here](https://form.jotform.com/Gillespie_Stacey/christmas-sale) to find out the details.
 
-The first 375 get to choose a free gift (a Planner, Crafter's Caddy, or Aroma Kit (Up to $90) **only 125 of each**  
- -$250 off DreamBox (use the code:STACEY250)  
- -$200 off Pre-built  
- -$50 off Crown  
- -Up to $325 off side kick options  
-\- - $50 off the Cubby, $50 off both Side Tables  
-\- - $125 off the Sew Station, $100 off the DreamCart (no code necessary)  
- -**-** $10 off the Power Strip, $20 off Organizing Essentials, $50 off Power Package, $20 off swing door accessories
+![](/images/dreambox-christmas.JPG)
 
-If you only want some accessories they are 20% off (with the code STACEY20)
+[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order so you can guarantee that you are one of the first and will get your FREE gift! Just let me know which gift you'd like!
 
-[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Sales Ambassador, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order so you can guarantee that you are one of the first and will get your FREE gift! Just let me know which gift you'd like!
+###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">by [zoom]( https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
 
-###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b> <span style="color:#bf6667;font-size:xx-large;">[HERE](https://calendly.com/staceycreateroom)</span>
-
-Get a $250 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY250**</span>
-
-Get 20% off all accessories! Use my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY20**</span>
+Get a $100 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>
 
 #### Purchasing the DreamBox in the [US](www.createroom.com/?srrf=HbnB5), [UK/EU](), [Canada](www.createroom.com/?srrf=HbnB5)
 
@@ -49,7 +36,7 @@ Get 20% off all accessories! Use my code:<b> <span style="color:#bf6667;font-siz
 
 ![](/images/gillespie-stacey4-27-21-55.jpg)
 
- **$100 off the** [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?rsrrf=HbnB58)
+**$100 off the** [**DREAMCART**](https://www.createroom.com/collections/furniture/products/dream-cart?rsrrf=HbnB58)
 
 ![](/images/create-room-dreamcart-bts-sale.jpg)
 
