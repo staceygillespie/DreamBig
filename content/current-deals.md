@@ -12,10 +12,10 @@ weight = 3
 
 <span style="color:#000000;">
 
-**The Christmas Sale** starts **Friday, Dec 16th** at **10am MST** and ends Dec 21st**.**
+The **Christmas Sale** starts **Friday, Dec 16th** at **10**am MST & ends Dec 21st.
 
 ![](/images/sale-announcement-05-1.jpg)  
-**Free Essential Oils** first 100 DB orders, Limited supplies ($70 value)
+**Free Essential Oils** for the first 100 DB orders, limited supplies ($70 value)
 
 ![](/images/sale-announcement-03-1.jpg)
 
@@ -37,7 +37,7 @@ weight = 3
 
 Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
-#### Purchasing the DreamBox in the [US](), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")  [US](), 
+#### Purchasing the DreamBox in the [US](), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")  
 
 ![](/images/dreambox_openandclosed-jpg.webp)
 
