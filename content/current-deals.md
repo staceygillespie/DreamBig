@@ -12,7 +12,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-**The Christmas sale starts Friday, Dec 16th AT 10am MST and ends Dec 21st.**
+**The Christmas Sale** starts **Friday, Dec 16th** at **10am MST** and ends Dec 21st**.**
 
 ![](/images/sale-announcement-05-1.jpg)  
 **Free Essential Oils** first 100 DB orders, Limited supplies ($70 value)
