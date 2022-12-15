@@ -37,8 +37,6 @@ The **Christmas Sale** starts **Friday, Dec 16th** at **10**am MST & ends Dec 21
 
 Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
-#### Purchasing the DreamBox in the [US](), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")
-
 ![](/images/dreambox_openandclosed-jpg.webp)
 
 **$50 off the** [**CUBBY**](https://www.createroom.com/products/cubby?srrf=HbnB5)**. Use the code STACEY50**![](/images/create-room-cubby-bts-sale.jpg)
@@ -57,7 +55,7 @@ Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;
 
 The [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?srrf=HbnB5) with LIGHT
 
-[bf_5.mp4](/images/bf_5.mp4 "bf_5.mp4")
+![](/images/noplacelikehomedreambox.jpg)
 
 [Crafter's Caddy](https://www.createroom.com/collections/accessories/products/crafters-caddy?srrf=HbnB5)
 
