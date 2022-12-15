@@ -19,13 +19,13 @@ weight = 3
 
 ![](/images/sale-announcement-03-1.jpg)
 
-* **$200 off DreamBox with the code:** :<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
-* **$100 off Pre-built**
+* **$200 off** [**DreamBox**](www.createroom.com/?srrf=H) **with the code:** :<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
+* **$200 off Pre-built**
 * **$100 off Crown**
 
 ###### **$100 off the SewStation**
 
-* **15% off ALL accessories / Furniture** (excluding the Dream Box & SewStation)
+* **15% off ALL** [**accessories**](https://www.createroom.com/collections/accessories/?srrf=H)**/**[**furniture**](https://www.createroom.com/collections/furniture/?srrf=H) **furniture** (excluding the Dream Box & SewStation)
 
 **12mo 0% financingCodes for**
 
@@ -35,7 +35,7 @@ weight = 3
 
 ###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
 
-Get a $100 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>
+Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
 #### Purchasing the DreamBox in the [US](), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")
 
