@@ -13,7 +13,7 @@ weight = 4
 
 <span style="color:#000000;">
 
-#### _The_ [_DreamBox_](http://www.createroom.com/?srrf=HbnB5) _is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!_
+#### _The_ [_DreamBox_](www.createroom.com/?srrf=HbnB5) _is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!_
 
 ###### <span style="color:**#009E60**;font-size:xx-large;"> F**ind out the** [**Christmas sale details**]() <b> <span style="color:#bf6667;font-size:large;">
 
