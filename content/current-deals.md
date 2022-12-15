@@ -25,9 +25,9 @@ weight = 3
 
 ###### **$100 off the SewStation**
 
-* **15% off ALL** [**accessories**](https://www.createroom.com/collections/accessories/?srrf=H)**/**[**furniture**](https://www.createroom.com/collections/furniture/?srrf=H) **furniture** (excluding the Dream Box & SewStation)
+* **15% off ALL** [**accessories**](https://www.createroom.com/collections/accessories/?srrf=HbnB5)**/**[**furniture**](https://www.createroom.com/collections/furniture/?srrf=H) (excluding the DreamBox & SewStation)
 
-**12mo 0% financingCodes for**
+**12mo 0% financing**
 
 ![](/images/dreambox-christmas.JPG)
 
@@ -37,7 +37,7 @@ weight = 3
 
 Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
-#### Purchasing the DreamBox in the [US](), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")
+#### Purchasing the DreamBox in the [US](), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")  [US](), 
 
 ![](/images/dreambox_openandclosed-jpg.webp)
 
