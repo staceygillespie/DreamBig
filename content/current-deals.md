@@ -19,7 +19,7 @@ The **Christmas Sale** starts **Friday, Dec 16th** at **10**am MST & ends Dec 21
 
 ![](/images/sale-announcement-03-1.jpg)
 
-* **$200 off** [**DreamBox**](www.createroom.com/?srrf=H) **with the code:** :<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
+* **$200 off** [**DreamBox**](www.createroom.com/?srrf=H) **with the code:** <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 * **$200 off Pre-built**
 * **$100 off Crown**
 
@@ -37,7 +37,7 @@ The **Christmas Sale** starts **Friday, Dec 16th** at **10**am MST & ends Dec 21
 
 Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
-#### Purchasing the DreamBox in the [US](), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")  
+#### Purchasing the DreamBox in the [US](), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")
 
 ![](/images/dreambox_openandclosed-jpg.webp)
 
