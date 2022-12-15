@@ -15,13 +15,13 @@ weight = 4
 
 #### _The_ [_DreamBox_](http://www.createroom.com/?srrf=HbnB5) _is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!_
 
-###### <span style="color:**#009E60**;font-size:xx-large;"> F**ind out the** [**Christmas sale details**]()**?** <b> <span style="color:#bf6667;font-size:large;">To get $200 off use the code STACEY200</span>
+###### <span style="color:**#009E60**;font-size:xx-large;"> F**ind out the** [**Christmas sale details**]() <b> <span style="color:#bf6667;font-size:large;">
 
-###### I will also post the details [here](https://www.dreambigwithstacey.com/current-deals/).
+###### To get $200 off use the code STACEY200</span>
 
 ###### Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox. <b> Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox <b> by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).
 
-#### Purchasing the DreamBox in the [US](www.createroom.com/?srrf=HbnB5 "US Link"), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")
+#### Purchasing the DreamBox in the [US](), [UK/EU](https://uk.createroom.com/?ref=YJvA8 "UK & EU Link"), [Canada](http://www.createroom.com/?srrf=HbnB5 "Canada Link")
 
 ***
 
