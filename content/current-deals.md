@@ -21,11 +21,10 @@ The **Christmas Sale** starts **Friday, Dec 16th** at **10**am MST & ends Dec 21
 
 * **$200 off** [**DreamBox**](www.createroom.com/?srrf=H) **with the code:** <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 * **$200 off Pre-built**
-* **$100 off Crown**
+* **$100 off Crown with light**
+* **$100 off SewStation**
 
-###### **$100 off the SewStation**
-
-* **15% off ALL** [**accessories**](https://www.createroom.com/collections/accessories/?srrf=HbnB5)**/**[**furniture**](https://www.createroom.com/collections/furniture/?srrf=H) (excluding the DreamBox & SewStation)
+**15% off ALL** [**accessories**](https://www.createroom.com/collections/accessories/?srrf=HbnB5)**/**[**furniture**](https://www.createroom.com/collections/furniture/?srrf=H) (excluding the DreamBox & SewStation)
 
 **12mo 0% financing**
 
