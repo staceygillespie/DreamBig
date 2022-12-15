@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/2a9e488d-6555-4a8b-989b-9b0a4fbaf6eb.jpg"
+featured_image = "/images/sale-announcement-06-2.jpg"
 title = "Current Deals"
 verification = ""
 [menu.main]
@@ -12,13 +12,28 @@ weight = 3
 
 <span style="color:#000000;">
 
-**The Christmas sale starts Friday, Dec 16th!**
+**The Christmas sale starts Friday, Dec 16th AT 10am MST and ends Dec 21st.**
 
-Sign up [here](https://form.jotform.com/Gillespie_Stacey/christmas-sale) to find out the details.
+![](/images/sale-announcement-05-1.jpg)  
+**Free Essential Oils** first 100 DB orders, Limited supplies ($70 value)
+
+![](/images/sale-announcement-03-1.jpg)
+
+* **$200 off DreamBox with the code:** :<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
+
+
+* **$100 off Pre-built**
+* **$100 off Crown**
+
+###### $100 off the SewStation  
+ + 15% off ALL accessories / Furniture (excluding the Dream Box & SewStation)
+
+**12mo 0% financingCodes for**   
+ 
 
 ![](/images/dreambox-christmas.JPG)
 
-[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order so you can be one of the first and will get your FREE gift! 
+[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order so you can be one of the first and will get your FREE gift!
 
 ###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
 
