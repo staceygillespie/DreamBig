@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/sale-announcement-06-2.jpg"
+featured_image = "/images/copy-of-createroom_jenhadfieldvalentines-3.jpg"
 title = "Current Deals"
 verification = ""
 [menu.main]
@@ -12,29 +12,15 @@ weight = 3
 
 <span style="color:#000000;">
 
-The **Christmas Sale** starts **Friday, Dec 16th** at **10**am MST & ends Dec 21st.
-
-![](/images/sale-announcement-05-1.jpg)  
-**Free Essential Oils** for the first 100 DB orders, limited supplies ($70 value)
-
-![](/images/sale-announcement-03-1.jpg)
-
-* **$200 off** [**DreamBox**](www.createroom.com/?srrf=H) **with the code:** <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
-* **$200 off Pre-built**
-* **$100 off Crown with light**
-* **$100 off SewStation**
-
-**15% off ALL** [**accessories**](https://www.createroom.com/collections/accessories/?srrf=HbnB5)**/**[**furniture**](https://www.createroom.com/collections/furniture/?srrf=H) (excluding the DreamBox & SewStation)
-
-**12mo 0% financing**
+The **Valentines Day Sale** details will be here soon.
 
 ![](/images/dreambox-christmas.JPG)
 
-[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order so you can be one of the first and will get your FREE gift!
+[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order.
 
 ###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
 
-Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
+Get a $100 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>
 
 ![](/images/dreambox_openandclosed-jpg.webp)
 
