@@ -14,7 +14,7 @@ weight = 3
 
 The **Valentines Day Sale** details will be here soon.  To learn the details sign up [here](https://form.jotform.com/Gillespie_Stacey/valentines-sale).
 
-![](/images/dreambox-christmas.JPG)
+![](/images/valentine-dreambox.jpg)![](/images/stacey-gillespie-2-17-22-33.jpg)
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order.
 
