@@ -12,7 +12,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-The **Valentines Day Sale** details will be here soon.
+The **Valentines Day Sale** details will be here soon.  To learn the details sign up [here](https://form.jotform.com/Gillespie_Stacey/valentines-sale).
 
 ![](/images/dreambox-christmas.JPG)
 
