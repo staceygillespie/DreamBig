@@ -14,11 +14,13 @@ weight = 3
 
 The **Valentines Day Sale** details will be here soon.  To learn the details sign up [here](https://form.jotform.com/Gillespie_Stacey/valentines-sale).
 
+![](/images/val-23-presale-graphics-02.jpg)
+
 ![](/images/valentine-dreambox.jpg)![](/images/stacey-gillespie-2-17-22-33.jpg)
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order.
 
-###### Book a **One on One Consulation** with me to talk about what set up you'd like for your home or to see my DreamBox. <b>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
+###### Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox. <b>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
 
 Get a $100 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>
 
