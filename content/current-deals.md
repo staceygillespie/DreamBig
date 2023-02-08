@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/val-23-early-access-02.jpg"
+featured_image = "/images/val-23-announcement-04.jpg"
 title = "Current Deals"
 verification = ""
 [menu.main]
@@ -13,6 +13,8 @@ weight = 3
 <span style="color:#000000;">
 
 The **Valentines Day Sale** starts February 10th at 10am MST.  Get this early access to the sale through this [link](www.createroom.com/?srrf=HbnB5).
+
+Get a **$200 off a DreamBox** & **$200 off the pre-built** during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
 ![](/images/val-23-early-access-02.jpg)
 
