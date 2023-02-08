@@ -15,15 +15,15 @@ weight = 4
 
 #### _The_ [_DreamBox_](https://www.createroom.com/?srrf=HbnB5) _is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!_
 
-Learn more about the the Valentine's Day sale [here](https://www.dreambigwithstacey.com/current-deals/).
+### Learn more about the the Valentine's Day sale [here](https://www.dreambigwithstacey.com/current-deals/).
 
-##### Get a **$100 discount** off a DreamBox by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY100**</span>
+##### Get a **$200 discount** off a DreamBox during the sale by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY100**</span>
 
 ##### Get a **$75 discount** off a Sew Station by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY75**</span>
 
 ##### Get a **$50 discount** off a DreamCart or Cubby by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY50**</span>
 
-###### <b> Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox <b> by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation).
+###### <b> Book a [**One on One Consultation**](https://CreateRoom.as.me/stacey) with me to talk about what setup you'd like for your home or to see my DreamBox <b> 
 
 #### Purchasing the DreamBox in the [US](www.createroom.com/?srrf=HbnB5), [Canada](www.createroom.com/?srrf=HbnB5)
 
