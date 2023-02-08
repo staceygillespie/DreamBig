@@ -17,13 +17,13 @@ weight = 4
 
 ### Learn more about the the Valentine's Day sale [here](https://www.dreambigwithstacey.com/current-deals/).
 
-##### Get a **$200 discount** off a DreamBox during the sale by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY100**</span>
+##### Get a **$200 discount** off a DreamBox during the sale by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY200**</span>
 
 ##### Get a **$75 discount** off a Sew Station by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY75**</span>
 
 ##### Get a **$50 discount** off a DreamCart or Cubby by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY50**</span>
 
-###### <b> Book a [**One on One Consultation**](https://CreateRoom.as.me/stacey) with me to talk about what setup you'd like for your home or to see my DreamBox <b> 
+###### <b> Book a [**One on One Consultation**](https://CreateRoom.as.me/stacey) with me to talk about what setup you'd like for your home or to see my DreamBox <b>
 
 #### Purchasing the DreamBox in the [US](www.createroom.com/?srrf=HbnB5), [Canada](www.createroom.com/?srrf=HbnB5)
 
