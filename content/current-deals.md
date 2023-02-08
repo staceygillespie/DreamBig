@@ -34,13 +34,13 @@ Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?
 
 [Organizing Essentials](https://www.createroom.com/products/organizing-package/?srrf=HbnB5) - $30 off
 
+[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
+
+###### <b> Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
+
 ![](/images/val-23-early-access-02.jpg)
 
 ![](/images/val-23sale-reminders-01.jpg)
-
-[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order.
-
-###### Book a **One on One Virtual Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox. <b>by </span>.  Schedule your consultation here: https://CreateRoom.as.me/stacey.
 
 Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
