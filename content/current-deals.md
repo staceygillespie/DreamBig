@@ -14,13 +14,27 @@ weight = 3
 
 The **Valentines Day Sale** starts February 10th at 10am MST.  Get this early access to the sale through this [link](www.createroom.com/?srrf=HbnB5).
 
+<span style="color:#bf6667;font-size:xx-large;">**FREE wallper**</span> for the first 135 DreamBox orders
+
+***
+
+\** *12mo 0% financing ****
+
 Get a **$200 off a DreamBox** & **$200 off the pre-built** during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
+
+**Save 15% on ALL furniture** & **accessories** (except for the DreamBox and SewStation)
+
+Sew Station - $150 off
+
+DreamCart - $100 off
+
+Both side tables -$100 off
+
+Cubby - $50 off
 
 ![](/images/val-23-early-access-02.jpg)
 
 ![](/images/val-23sale-reminders-01.jpg)
-
-![](/images/stacey-gillespie-2-17-22-33.jpg)
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order.
 
