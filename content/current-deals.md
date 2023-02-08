@@ -12,15 +12,15 @@ weight = 3
 
 <span style="color:#000000;">
 
-The <span style="color:#bf6667;font-size:xx-large;">**Valentines Day Sale** </span> starts February 10th at 10am MST - February 20th at midnight MST.
+The <span style="color:#bf6667;font-size:xx-large;"> **Valentine's Day Sale** </span> starts **February 10th at 10 am** MST and ends on February 20th at midnight MST.
 
-Get EARLY ACCESS to the sale through this [link](www.createroom.com/?srrf=HbnB5).
+Get [**EARLY ACCESS**](www.createroom.com/?srrf=HbnB5) to the sale!
 
 <span style="color:#bf6667;font-size:xx-large;">**FREE wallpaper**</span> for the first 135 DreamBox orders
 
 \***12mo 0% financing ***
 
-Get a **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$200 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
+Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$200 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
 **Save 15% on ALL furniture** & **accessories** (except for the DreamBox and SewStation)
 
