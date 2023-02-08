@@ -12,6 +12,8 @@ weight = 3
 
 <span style="color:#000000;">
 
+The <span style="color:#bf6667;font-size:xx-large;">**Valentines Day Sale** </span> starts February 10th at 10am MST - February 20th.>
+
 The **Valentines Day Sale** starts February 10th at 10am MST.  
 
 Get EARLY ACCESS to the sale through this [link](www.createroom.com/?srrf=HbnB5).
@@ -28,7 +30,7 @@ Get a **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox
 
 [DreamCart](https://www.createroom.com/products/dream-cart/?srrf=HbnB5) - $100 off
 
-[Both side tables]() -$100 off
+[Both side tables](https://www.createroom.com/products/side-tables/?srrf=HbnB5) -$100 off
 
 [Cubby](https://www.createroom.com/products/cubby/?srrf=HbnB5) - $50 off
 
