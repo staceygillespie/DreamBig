@@ -25,7 +25,7 @@ weight = 4
 
 ###### <b> Book a [**One on One Consultation**](https://CreateRoom.as.me/stacey) with me to talk about what setup you'd like for your home or to see my DreamBox <b>
 
-#### Purchase the DreamBox in the [US](www.createroom.com/?srrf=HbnB5) or [CANADA](www.createroom.com/?srrf=HbnB5).
+#### Purchase the DreamBox in the [US](www.createroom.com/?srrf=HbnB5) or [Canada](www.createroom.com/?srrf=HbnB5).
 
 ***
 
