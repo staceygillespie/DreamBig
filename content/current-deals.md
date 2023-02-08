@@ -12,9 +12,11 @@ weight = 3
 
 <span style="color:#000000;">
 
-The **Valentines Day Sale** starts February 10th at 10am MST.  Get EARLY ACCESS to the sale through this [link](www.createroom.com/?srrf=HbnB5).
+The **Valentines Day Sale** starts February 10th at 10am MST.  
 
-<span style="color:#bf6667;font-size:xx-large;">**FREE wallper**</span> for the first 135 DreamBox orders
+Get EARLY ACCESS to the sale through this [link](www.createroom.com/?srrf=HbnB5).
+
+<span style="color:#bf6667;font-size:xx-large;">**FREE wallpaper**</span> for the first 135 DreamBox orders
 
 \***12mo 0% financing ***
 
@@ -38,7 +40,7 @@ Get a **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes so the company knows I helped you. I can even set up invoices for your order.
 
-###### Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox. <b>by [zoom](https://calendly.com/staceycreateroom/30min ) or by [phone](https://calendly.com/staceycreateroom/phone-consultation)</span>
+###### Book a **One on One Virtual Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox. <b>by </span>.  Schedule your consultation here: https://CreateRoom.as.me/stacey.
 
 Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
