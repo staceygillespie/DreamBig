@@ -12,25 +12,25 @@ weight = 3
 
 <span style="color:#000000;">
 
-The **Valentines Day Sale** starts February 10th at 10am MST.  Get this early access to the sale through this [link](www.createroom.com/?srrf=HbnB5).
+The **Valentines Day Sale** starts February 10th at 10am MST.  Get EARLY ACCESS to the sale through this [link](www.createroom.com/?srrf=HbnB5).
 
 <span style="color:#bf6667;font-size:xx-large;">**FREE wallper**</span> for the first 135 DreamBox orders
 
-***
+\***12mo 0% financing ***
 
-\** *12mo 0% financing ****
-
-Get a **$200 off a DreamBox** & **$200 off the pre-built** during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
+Get a **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$200 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
 **Save 15% on ALL furniture** & **accessories** (except for the DreamBox and SewStation)
 
-Sew Station - $150 off
+[Sew Station](https://www.createroom.com/products/sew-station/?srrf=HbnB5) - $150 off
 
-DreamCart - $100 off
+[DreamCart](https://www.createroom.com/products/dream-cart/?srrf=HbnB5) - $100 off
 
-Both side tables -$100 off
+[Both side tables]() -$100 off
 
-Cubby - $50 off
+[Cubby](https://www.createroom.com/products/cubby/?srrf=HbnB5) - $50 off
+
+[Organizing Essentials](https://www.createroom.com/products/organizing-package/?srrf=HbnB5) - $30 off
 
 ![](/images/val-23-early-access-02.jpg)
 
@@ -68,7 +68,7 @@ The [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?srrf=H
 
 ![](/images/copy-of-createroom_jenhadfieldvalentines-1179.jpg)
 
-You can get your DreamBox **prebuilt!**
+You can get your DreamBox [**prebuilt**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)**!**
 
 ![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
