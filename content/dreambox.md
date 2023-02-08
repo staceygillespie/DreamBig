@@ -23,7 +23,7 @@ weight = 4
 
 ##### Get a **$50 discount** off a DreamCart or Cubby by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY50**</span>
 
-###### <b> Book a [**One on One Consultation**](https://CreateRoom.as.me/stacey) with me to talk about what setup you'd like for your home or to see my DreamBox <b>
+###### <b> Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
 
 #### Purchase the DreamBox in the [US](www.createroom.com/?srrf=HbnB5) or [Canada](www.createroom.com/?srrf=HbnB5).
 
