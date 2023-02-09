@@ -14,7 +14,7 @@ weight = 3
 
 The <span style="color:#bf6667;font-size:xx-large;"> **Valentine's Day Sale** </span> starts **February 10th at 10 am** MST and ends on February 20th at midnight MST.
 
-Get [**EARLY ACCESS **](www.createroom.com/?srrf=HbnB5)to the sale!
+Get **EARLY ACCESS** to the sale!
 
 <span style="color:#bf6667;font-size:xx-large;">**FREE wallpaper**</span> for the first 135 DreamBox orders
 
