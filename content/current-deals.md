@@ -20,9 +20,7 @@ Get [**EARLY ACESS **]()to the sale!
 
 \***12mo 0% financing ***
 
-Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$200 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
-
-**Save 15% on ALL furniture** & **accessories** (except for the DreamBox and SewStation)
+Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$200 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span> These are the savings you'll receive  when ordering with a DreamBox:
 
 [Sew Station](https://www.createroom.com/products/sew-station/?srrf=HbnB5) - $150 off
 
@@ -33,6 +31,8 @@ Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?
 [Cubby](https://www.createroom.com/products/cubby/?srrf=HbnB5) - $50 off
 
 [Organizing Essentials](https://www.createroom.com/products/organizing-package/?srrf=HbnB5) - $30 off
+
+DreamBox owners **save 15% on ALL furniture** & **accessories** (except for the DreamBox and SewStation)
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
