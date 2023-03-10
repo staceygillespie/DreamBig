@@ -13,7 +13,9 @@ menu:
 
 <span style="color:#000000;">
 
-Feel free to contact me with any questions about my projects, my DreamBox, or anything else you might be interested in.  Contact me through this form and I will get back to you with the email provided or any other contact method you want to give me access to.
+Feel free to contact me with any questions about my projects, my DreamBox, or anything else you might be interested in.  Contact me through this form and I will get back to you with the email provided or any other contact method you want to give me access to.  Contact me at **staceyg@createroom.com**
+
+you can also set up a virtual consultation with me here: https://calendly.com/staceycreateroom/30min
 
 {{<form-contact action="https://formspree.io/f/mayayljz">}}
 
