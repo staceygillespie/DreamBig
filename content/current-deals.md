@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/val-23-announcement-04.jpg"
+featured_image = "/images/craft-month-paper-source.JPG"
 title = "Current Deals"
 verification = ""
 [menu.main]
@@ -12,7 +12,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-The <span style="color:#bf6667;font-size:xx-large;"> Celebrate Craft Month with exclusive deals and sweepstakes! </span>  **March 6th - March 20.**.
+The <span style="color:#bf6667;font-size:xx-large;"> **Celebrate Craft Month** with exclusive deals and sweepstakes! </span>  **March 6th - March 20.**.
 
 Get **EARLY ACCESS** to the sale!
 
@@ -20,29 +20,11 @@ Get **EARLY ACCESS** to the sale!
 
 \***12mo 0% financing ***
 
-Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$200 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
-
-These are the savings you'll receive  when ordering with a DreamBox:
-
-[Sew Station](https://www.createroom.com/products/sew-station/?srrf=HbnB5) - $150 off
-
-[DreamCart](https://www.createroom.com/products/dream-cart/?srrf=HbnB5) - $100 off
-
-[Both side tables](https://www.createroom.com/products/side-tables/?srrf=HbnB5) -$100 off
-
-[Cubby](https://www.createroom.com/products/cubby/?srrf=HbnB5) - $50 off
-
-[Organizing Essentials](https://www.createroom.com/products/organizing-package/?srrf=HbnB5) - $30 off
-
-DreamBox owners **save 15% on ALL furniture** & **accessories** (except for the DreamBox and SewStation)
+Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$100 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during Craft Month using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
 ###### <b> Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
-
-![](/images/val-23-early-access-02.jpg)
-
-![](/images/val-23sale-reminders-01.jpg)
 
 Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
