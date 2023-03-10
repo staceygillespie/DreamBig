@@ -14,7 +14,7 @@ weight = 3
 
 The <span style="color:#bf6667;font-size:xx-large;"> **Celebrate Craft Month** with exclusive deals and sweepstakes! </span>  **March 6th - March 20.**.
 
-Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$100 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during Craft Month using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
+Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$100 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during Craft Month using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>  And right now they have discounted the **Crown with the light** by $300, get it for **just $49**!
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
