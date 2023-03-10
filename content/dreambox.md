@@ -15,9 +15,9 @@ weight = 4
 
 #### _The_ [_DreamBox_](https://www.createroom.com/?srrf=HbnB5) _is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!_
 
-### Learn more about the Valentine's Day sale [here](https://www.dreambigwithstacey.com/current-deals/).
+### Learn more about discounts available [here](https://www.dreambigwithstacey.com/current-deals/).
 
-##### Get a **$200 discount** off a DreamBox during the sale by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY200**</span>
+##### Get a **$200 discount** off a DreamBox unitl March 20 by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY200**</span>
 
 ##### Get a **$75 discount** off a Sew Station by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY75**</span>
 
