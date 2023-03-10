@@ -12,7 +12,7 @@ weight = 3
 
 <span style="color:#000000;">
 
- <span style="color:#bf6667;font-size:xx-large;"> **Celebrate Craft Month** with exclusive deals and sweepstakes! </span>  **March 6th - March 20.**.
+<span style="color:#bf6667;font-size:xx-large;"> **Celebrate Craft Month** with exclusive deals and sweepstakes! </span>  **March 6th - March 20.**
 
 Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$100 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during Craft Month using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>  They have discounted the **Crown with the light** by $300, get it for **just $49**!
 
@@ -20,7 +20,9 @@ Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?
 
 #### <b> Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
 
-Enter to [win a DreamBox](https://www.createroom.com/pages/craft-month/?srrf=HbnB5)!!  If you decide to purchase with these great prices, I'd appreciate it if you to use my code: <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>, and choosing my name, Stacey G, in the dropdown menu for who helped you.
+Enter to [win a DreamBox](https://www.createroom.com/pages/craft-month/?srrf=HbnB5)!!
+
+If you decide to purchase with these great prices, I'd appreciate it if you to use my code: <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>, and choosing my name, Stacey G, in the dropdown menu for who helped you.
 
 ![](/images/craft-month-paper-source.JPG)
 
