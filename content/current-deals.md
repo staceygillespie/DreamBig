@@ -14,12 +14,6 @@ weight = 3
 
 The <span style="color:#bf6667;font-size:xx-large;"> **Celebrate Craft Month** with exclusive deals and sweepstakes! </span>  **March 6th - March 20.**.
 
-Get **EARLY ACCESS** to the sale!
-
-<span style="color:#bf6667;font-size:xx-large;">**FREE wallpaper**</span> for the first 135 DreamBox orders
-
-\***12mo 0% financing ***
-
 Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$100 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during Craft Month using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a Creator Consultant, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
@@ -27,6 +21,10 @@ Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?
 ###### <b> Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
 
 Get a $200 discount off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
+
+Enter to [win a DreamBox]( https://www.createroom.com/pages/craft-month/?srrf=HbnB5)!!  If you decide to purchase with these great prices, I'd appreciate it if you to use my code: STACEY200, and choose my name, Stacey G, in the dropdown menu for who helped you.
+
+![](/images/craft-month-paper-source.JPG)
 
 ![](/images/dreambox_openandclosed-jpg.webp)
 
