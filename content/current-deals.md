@@ -20,9 +20,9 @@ Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?
 
 #### <b> Book a **_One on One Consultation_** with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
 
-Enter to [win a DreamBox](https://www.createroom.com/pages/craft-month/?srrf=HbnB5) before March 20th!!
+### Enter to [win a DreamBox](https://www.createroom.com/pages/craft-month/?srrf=HbnB5) before March 20th!!
 
-If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>, and choose my name, **_Stacey G_**, in the dropdown menu for who helped you.
+##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>, and choose my name, **_Stacey G_**, in the dropdown menu for who helped you.
 
 ![](/images/craft-month-paper-source.JPG)
 
