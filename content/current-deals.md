@@ -12,7 +12,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-The <span style="color:#bf6667;font-size:xx-large;"> **Valentine's Day Sale** </span> starts **February 10th at 10 am** MST and ends on February 20th at midnight MST.
+The <span style="color:#bf6667;font-size:xx-large;"> Celebrate Craft Month with exclusive deals and sweepstakes! </span>  **March 6th - March 20.**.
 
 Get **EARLY ACCESS** to the sale!
 
@@ -20,7 +20,7 @@ Get **EARLY ACCESS** to the sale!
 
 \***12mo 0% financing ***
 
-Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$200 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span> 
+Get **$200 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) & **$200 off the** [**pre-built**](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) during the sale using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span>
 
 These are the savings you'll receive  when ordering with a DreamBox:
 
