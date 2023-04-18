@@ -15,7 +15,7 @@ weight = 4
 
 #### _The_ [_DreamBox_](https://www.createroom.com/?srrf=HbnB5) _is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!_
 
-#### Enter the DreamBox giveaway before April 23rd and see all the discounts available [here](https://www.dreambigwithstacey.com/current-deals/).
+#### Enter the [**Replica Surfaces x Create Room Giveaway**](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5) before April 23rd and see all the discounts available [here](https://www.dreambigwithstacey.com/current-deals/).
 
 ##### Get a **$100 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY100**</span>
 
