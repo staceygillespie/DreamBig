@@ -14,7 +14,7 @@ weight = 3
 
 <span style="color:#bf6667;font-size:xx-large;"> **Replica Surfaces x Create Room Giveaway** One lucky winner will win a Create Room DreamCart and a Replica Surfaces Pro Pack, complete with photo backdrops, a moveable Studio, and a digital photography and staging workshop (total prize valued at over $1,800 value). </span>  **April 17 - April 23.**
 
-Get **$100 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>  
+Get **$100 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a **_Creator Consultant_**, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
@@ -24,7 +24,7 @@ Get **$100 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?
 
 ##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span> and choose my name, **_Stacey G_**, in the dropdown menu for who helped you.
 
-![](/images/craft-month-paper-source.JPG)
+![](/images/replica-giveaway4.webp)
 
 ![](/images/dreambox_openandclosed-jpg.webp)
 
