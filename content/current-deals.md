@@ -12,7 +12,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-<span style="color:#bf6667;font-size:xx-large;"> [**Replica Surfaces x Create Room Giveaway**](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5) One lucky winner will win a Create Room DreamCart and a Replica Surfaces Pro Pack, complete with photo backdrops, a moveable Studio, and a digital photography and staging workshop (total prize valued at over $1,800 value). </span>  **April 17 - April 23.**
+<span style="color:#bf6667;font-size:xx-large;"> [**Replica Surfaces x Create Room Giveaway**](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5) </span>One lucky winner will win a Create Room DreamCart and a Replica Surfaces Pro Pack, complete with photo backdrops, a moveable Studio, and a digital photography and staging workshop (total prize valued at over $1,800 value).  **April 17 - April 23.**
 
 Get **$100 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>
 
