@@ -1,6 +1,6 @@
 +++
 description = "Exclusive limited-time sales while supplies last!"
-featured_image = "/images/craft-month-paper-source.JPG"
+featured_image = "/images/createroom_reneemothersday-25.jpg"
 title = "Current Deals"
 verification = ""
 [menu.main]
@@ -12,7 +12,7 @@ weight = 3
 
 <span style="color:#000000;">
 
-<span style="color:#bf6667;font-size:xx-large;"> **Celebrate Craft Month** with exclusive deals and sweepstakes! </span>  **March 6th - March 20.**
+<span style="color:#bf6667;font-size:xx-large;"> **Replica Surfaces x Create Room Giveaway** One lucky winner will win a Create Room DreamCart and a Replica Surfaces Pro Pack, complete with photo backdrops, a moveable Studio, and a digital photography and staging workshop (total prize valued at over $1,800 value). </span>  **April 17 - April 23.**
 
 Get **$100 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?srrf=HbnB5) using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>  
 
@@ -22,7 +22,7 @@ Get **$100 off a** [**DreamBox**](https://www.createroom.com/products/dreambox/?
 
 #### Enter the [**Replica Surfaces x Create Room Giveaway**](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5) before April 23rd
 
-##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>, and choose my name, **_Stacey G_**, in the dropdown menu for who helped you.
+##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span> and choose my name, **_Stacey G_**, in the dropdown menu for who helped you.
 
 ![](/images/craft-month-paper-source.JPG)
 
