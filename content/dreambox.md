@@ -17,7 +17,7 @@ weight = 4
 
 #### Enter the DreamBox giveaway before March 20th and see all the discounts available [here](https://www.dreambigwithstacey.com/current-deals/).
 
-##### Get a **$200 discount** off a DreamBox unitl March 20 by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY200**</span>
+##### Get a **$100 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY100**</span>
 
 ##### Get a **$75 discount** off a Sew Station by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY75**</span>
 
