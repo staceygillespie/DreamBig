@@ -17,7 +17,7 @@ weight = 4
 
 #### Enter the [**Replica Surfaces x Create Room Giveaway**](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5) before April 23rd and see all the discounts available [here](https://www.dreambigwithstacey.com/current-deals/).
 
-Sign up to be the first to learn the details of the <b> <span style="color:#bf6667;font-size:xx-large;">**Mother's Day Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/mothers-day-sale).
+Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**Mother's Day Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/mothers-day-sale).
 
 ##### Get a **$100 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY100**</span>
 
