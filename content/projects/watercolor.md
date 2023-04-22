@@ -1,3 +1,7 @@
+---
+_template: post
+---
+
 +++
 date = 2021-03-29T03:09:37Z
 description = "Water.  We all need it to survive.  But now it has a higher purpose."

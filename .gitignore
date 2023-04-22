@@ -5,3 +5,5 @@ hugo_stats.json
 
 # macOS
 .DS_Store
+
+node_modules

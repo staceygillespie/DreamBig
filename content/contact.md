@@ -1,14 +1,15 @@
 ---
 title: Contact
-featured_image: "/images/img_4846-3.JPG"
+featured_image: /images/img_4846-3.JPG
 omit_header_text: true
 description: ''
 type: page
 menu:
   main:
     weight: 2
-
+_template: contact
 ---
+
 <body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">

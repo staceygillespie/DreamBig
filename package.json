@@ -1,0 +1,19 @@
+{
+  "name": "dreambig",
+  "version": "1.0.0",
+  "description": "Ready-to-use Forestry starter with Hugo Ananke Theme.",
+  "main": "index.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "dependencies": {
+    "@tinacms/cli": "^1.5.6",
+    "tinacms": "^1.4.6"
+  },
+  "devDependencies": {
+    "postcss-cli": "^10.1.0"
+  }
+}

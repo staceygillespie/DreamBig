@@ -1,10 +1,11 @@
 ---
 title: Dare to Dream Big
-featured_image: "/images/dreambox-open.jpg"
+featured_image: /images/dreambox-open.jpg
 description: ''
 verification: ''
-
+_template: page
 ---
+
 <body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">

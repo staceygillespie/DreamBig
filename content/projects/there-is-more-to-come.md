@@ -1,3 +1,7 @@
+---
+_template: post
+---
+
 +++
 date = 2021-05-03T19:39:15Z
 description = "this is a work in progress"

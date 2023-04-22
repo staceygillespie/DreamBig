@@ -1,12 +1,21 @@
+---
+title: About Stacey
+description: Proud mother of five sons
+featured_image: /images/dsc_7989-2.jpg
+_template: about
+---
+
 +++
 description = "Proud mother of five sons"
-featured_image = "/images/dsc_7989-2.jpg"
-title = "About Stacey"
-[menu.main]
+featured\_image = "/images/dsc\_7989-2.jpg"
+title = "About Stacey"\
+type = page
+\[menu.main]
 name = "About"
 weight = 1
 
 +++
+
 <body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">

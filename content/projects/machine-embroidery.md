@@ -1,3 +1,7 @@
+---
+_template: post
+---
+
 +++
 date = 2021-04-17T17:43:30Z
 description = ""

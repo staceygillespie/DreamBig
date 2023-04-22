@@ -1,3 +1,7 @@
+---
+_template: post
+---
+
 +++
 date = 2021-03-29T03:14:45Z
 description = "Quilts n stuff"

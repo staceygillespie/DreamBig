@@ -1,21 +1,29 @@
+---
+title: DreamBox
+description: I went from clutter to organizational joy
+featured_image: /images/stacey-gillespie-2-17-22-56.jpg
+_template: post
+---
+
 +++
 date = 2021-03-28T02:18:30Z
 description = "I went from clutter to organizational joy"
-disable_share = false
-featured_image = "/images/stacey-gillespie-2-17-22-56.jpg"
-tags = []
+disable\_share = false
+featured\_image = "/images/stacey-gillespie-2-17-22-56.jpg"
+tags = \[]
 title = "DreamBox"
-[menu.main]
+\[menu.main]
 weight = 4
 
 +++
+
 <body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">
 
-#### _The_ [_DreamBox_](https://www.createroom.com/?srrf=HbnB5) _is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!_
+#### *The* *[DreamBox](https://www.createroom.com/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
 
-#### Enter the [**Replica Surfaces x Create Room Giveaway**](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5) before April 23rd and see all the discounts available [here](https://www.dreambigwithstacey.com/current-deals/).
+#### Enter the **[Replica Surfaces x Create Room Giveaway](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5)** before April 23rd and see all the discounts available [here](https://www.dreambigwithstacey.com/current-deals/).
 
 Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**Mother's Day Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/mothers-day-sale).
 
@@ -280,8 +288,8 @@ Check out the NEW Products [Here](https://www.dreambigwithstacey.com/current-dea
 
 ###### **IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
 
-###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to [**Let’s Make Art**](https://prz.io/JaoNveF8 "Refer a friend") (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   _*When you use my code or links Create Room gives me a little money._
+###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to **[Let’s Make Art](https://prz.io/JaoNveF8 "Refer a friend")** (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   *\*When you use my code or links Create Room gives me a little money.*
 
-###### ** I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?ref=YJvA8 "DreamBox"), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dream Cart") myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
+###### \*\* I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?ref=YJvA8 "DreamBox"), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dream Cart") myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
 
 </span></body>
