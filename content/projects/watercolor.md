@@ -1,17 +1,16 @@
 ---
-_template: post
+title: Watercolor
+description: Water.  We all need it to survive.  But now it has a higher purpose.
+date: 2021-03-29T03:09:37.000Z
+featured_image: >-
+  https://assets.tina.io/b056dbff-abf4-4312-9df6-2cb55b680326/images/img_3629.jpeg
+tags:
+  - painting
+  - family
+  - brusho
+  - watercolor
 ---
 
-+++
-date = 2021-03-29T03:09:37Z
-description = "Water.  We all need it to survive.  But now it has a higher purpose."
-disable_share = false
-draft = true
-featured_image = "/images/img_3629.jpeg"
-tags = ["watercolor", "brusho", "family", "painting"]
-title = " Watercolor"
-
-+++
 <body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">
@@ -26,7 +25,7 @@ I use [Princeton Heritage](https://shrsl.com/30jm1 "Princeton brushes") Series 4
 
 The first set I bought is the [Sennelier](https://shrsl.com/30jli "Sennelier half pan") [Artist's Set of 12 + 6 FREE](https://shrsl.com/30ojy "12-6free") half pan set with metal case.  After painting for 2 years I have now purchased the Artists' Watercolor Set of 48 with metal case. I don't need that many colors since I can mix the primaries to get any color I need, but I love trying new colors.  I treasure my small discoveries when I'm creating and playing around with  paints.
 
-###### **I am sharing some links of what I personally use and where you can buy them.  I bought my all of own supplies, but I get a little money when you use my links and buy through [Dick Blick](https://shrsl.com/30jmr "Home page").  If this is your first time buying from [Let's Make Art](https://prz.io/JaoNveF8 "LMA Friend referral") you can save $5 when you spend $35 by clicking: [here](https://prz.io/JaoNveF8 "LMA friend referral").  I love Sarah's YouTube tutorials and have learned a lot from her teaching style.  I also feature other artist's tutorials I have followed and I am not compensated from any of these websites or artists.
+###### \*\*I am sharing some links of what I personally use and where you can buy them.  I bought my all of own supplies, but I get a little money when you use my links and buy through [Dick Blick](https://shrsl.com/30jmr "Home page").  If this is your first time buying from [Let's Make Art](https://prz.io/JaoNveF8 "LMA Friend referral") you can save $5 when you spend $35 by clicking: [here](https://prz.io/JaoNveF8 "LMA friend referral").  I love Sarah's YouTube tutorials and have learned a lot from her teaching style.  I also feature other artist's tutorials I have followed and I am not compensated from any of these websites or artists.
 
 ![](/images/tuscan-landscape-geoff-kersey-april-2021.jpeg)
 
