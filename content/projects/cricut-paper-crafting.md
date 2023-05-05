@@ -1,17 +1,19 @@
 ---
-_template: post
+title: Cricut / Paper Crafting
+description: >-
+  Cutting machines are like a brush in an artist's hands.  The creative
+  possibilities are endless!
+date: 2021-04-17T17:38:29.000Z
+featured_image: >-
+  https://assets.tina.io/b056dbff-abf4-4312-9df6-2cb55b680326/images/200426_project-life-9c6775.jpg
+tags:
+  - water bottles
+  - shadow box
+  - Infusible Ink
+  - Vinyl
+  - Cricut
 ---
 
-+++
-date = 2021-04-17T17:38:29Z
-description = "Cutting machines are like a brush in an artist's hands.  The creative possibilities are endless!"
-disable_share = false
-draft = true
-featured_image = "/images/200426_project-life-9c6775.jpg"
-tags = ["Cricut", " Vinyl", " Infusible Ink", " shadow box", " water bottles"]
-title = "Cricut / Paper Crafting"
-
-+++
 <body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">
@@ -30,7 +32,7 @@ I used [Cricu](https://shrsl.com/30jt6 "Cricut store sales")[t](https://shrsl.co
 
 #### I made this mermaid pillow using infusible ink [transfer sheets](https://shrsl.com/30jnx "transfer sheets") and design space images for my grandson.  My sons all humored me by taking part in this 2019 Christmas break activity where we all designed our own [shirts](https://shrsl.com/30jkk "blank shirts").  Some of used infusible ink and some the [infusible ink pens](https://shrsl.com/30jl6 "infusible ink pens").  you can have your [Cricut](https://shrsl.com/30jkf "home") machine draw your image for you using their infusible ink pens!
 
-###### **I'm sharing what I love to make and have provided some links for where you can buy the same items.  I have not received any of these products for free, but if you use any of the links provided I get a small commission from your purchase.
+###### \*\*I'm sharing what I love to make and have provided some links for where you can buy the same items.  I have not received any of these products for free, but if you use any of the links provided I get a small commission from your purchase.
 
 ![](/images/mermaid-pillow.JPG)![](/images/christmas-infusible-ink-shirts.jpeg)
 
