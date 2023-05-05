@@ -5,20 +5,11 @@ description: Exclusive limited-time sales while supplies last!
 _template: page
 ---
 
-+++
-description = "Exclusive limited-time sales while supplies last!"
-featured\_image = "/images/createroom\_reneemothersday-25.jpg"
-title = "Current Deals"
-verification = ""
-\[menu.main]
-name = "Deals"
-weight = 3
-
-+++
-
 <body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">
+
+[DreamBox page](/dreambox)
 
 ###### <span style="color:#bf6667;font-size:Medium;"> **[Replica Surfaces x Create Room Giveaway](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5)** </span> One lucky winner will win a Create Room **DreamCart** and a **Replica Surfaces Pro Pack**, complete with photo backdrops, a moveable Studio, and a digital photography and staging workshop (total prize valued at over $1,800 value).  **April 17 - April 23.**
 
@@ -86,7 +77,7 @@ I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new
 
 *
 
-  **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to **[Let’s Make Art](https://prz.io/JaoNveF8 "Refer a friend")** (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. *\*Create Room compensates me when you use my code or links.*
+**If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to **[Let’s Make Art](https://prz.io/JaoNveF8 "Refer a friend")** (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. *\*Create Room compensates me when you use my code or links.*
 
 ### **Other NEW PRODUCTS**
 
@@ -130,19 +121,19 @@ More than one cubby can be placed side-by-side or stacked.
 
 You can choose which side of the DiviDrawer you'd like to display! Keep it a **solid** white or choose the **clear** side. Do you prefer seeing your supplies or covering them with a fun design from using a decorative paper you love?
 
-* ![](/images/stacey-product-photos-22.jpg)![](/images/stacey-product-photos-2.jpg)![/images/fb-live-photo-1.png](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/fb-live-photo-1.png)
+* ![](/images/stacey-product-photos-22.jpg)![](/images/stacey-product-photos-2.jpg)![/images/fb-live-photo-1.png](/images/fb-live-photo-1.png)
 
-  ![/images/cr](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/cr_4thofjuly-3467.jpg)
+  ![/images/cr\_4thofjuly-3467.jpg](/images/cr_4thofjuly-3467.jpg)
 
   Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?ref=YJvA8 "tote differences") here.
 
-  ![/images/stylesgif](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/stylesgif_900x600_crop_center.gif)
+  ![/images/stylesgif\_900x600\_crop\_center.gif](/images/stylesgif_900x600_crop_center.gif)
 
   Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order.
 
-\-- <video width="640" height="480" controls>\
-\-- <source src="/images/tote-stacks_1.mp4" type="video/mp4">\
-\-- </video>
+<video width="640" height="480" controls>
+<source src="/images/tote-stacks_1.mp4" type="video/mp4">
+</video>
 
 ***
 
@@ -150,7 +141,7 @@ You can choose which side of the DiviDrawer you'd like to display! Keep it a **s
 
 ###
 
-#### $100 off [DreamBox](https://app.forestry.io/dreambox) anytime with my code!
+#### $100 off [DreamBox](/dreambox) anytime with my code!
 
 ##### Code: **DREAMBIG**
 
@@ -158,17 +149,17 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ***
 
-![/images/img](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/img_0601.jpg "Sew Station")
+![/images/img\_0601.jpg](/images/img_0601.jpg "Sew Station")
 
 ### [Side Tables](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8)
 
-![/images/gillespie-stacey4-27-21-32](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
+![/images/gillespie-stacey4-27-21-32\_crop.jpg](/images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
 
 ### [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
 
-![/images/dc.jpg](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/dc.jpg)
+![/images/dc.jpg](/images/dc.jpg)
 
-![/images/dreamcart.JPG](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/dreamcart.JPG)
+![/images/dreamcart.JPG](/images/dreamcart.JPG)
 
 ***
 
