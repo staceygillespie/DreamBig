@@ -24,6 +24,8 @@ _template: page
 ###### **First 200 Free Gift**
 
 Crafter's Caddy & Planner ($78 value)
+
+![](https://assets.tina.io/b056dbff-abf4-4312-9df6-2cb55b680326/images/23-mothersdaysale-dreambox.jpeg)
 **$250 off [DreamBox](https://www.createroom.com/products/dreambox/?srrf=HbnB5)**
 with my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY250**</span></b>
 
@@ -45,13 +47,13 @@ with my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY20**</s
 No code needed:
 **$150 off Sew Station**
 
+![](https://assets.tina.io/b056dbff-abf4-4312-9df6-2cb55b680326/images/23-mothersdaysale-stacey2.jpeg)
+
 Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 Give your friend this sweet *Mother's Day card*.
 
 **12mo 0% financing**
 \*USA only
-
-Get **$100 off a** **[DreamBox](https://www.createroom.com/products/dreambox/?srrf=HbnB5)** using my code:<b><span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span></b>
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
