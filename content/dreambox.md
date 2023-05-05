@@ -9,6 +9,8 @@ _template: post
 
 <span style="color:#000000;">
 
+[Deals page](/current-deals)
+
 #### *The* *[DreamBox](https://www.createroom.com/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
 
 #### Enter the **[Replica Surfaces x Create Room Giveaway](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5)** before April 23rd and see all the discounts available [here](https://www.dreambigwithstacey.com/current-deals/).
@@ -272,7 +274,7 @@ I have both side tables and love using both.
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
-Check out the NEW Products [Here](https://www.dreambigwithstacey.com/current-deals/ "Deal page").
+Check out the NEW Products [Here](/current-deals/ "Deal page").
 
 ###### **IMPORTANT:** Due to the global shortage and dramatic price increase for lumber and plastics, the price of the DreamBox will be increasing starting July 31st.
 
