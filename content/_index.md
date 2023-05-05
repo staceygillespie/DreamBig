@@ -10,7 +10,7 @@ _template: page
 
 <span style="color:#000000;">
 
-[DreamBox page](/dreambox) | \[Deals page]\(/current-deals)
+[DreamBox page](/dreambox) | [Deals page](/current-deals)
 
 **Why do we limit ourselves and not go after our dreams?**
 
