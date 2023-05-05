@@ -19,7 +19,7 @@ Sign up to be the first to learn the details of the <b> <span style="color:#bf66
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
-#### Book a <b> \<span style="color:#bf6667;font-size:large;>***One on One Consultation***</span> with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
+#### Book a <b> \ \<span style="color:#bf6667;font-size:large;>***One on One Consultation***</span> with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
 
 ##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
 
@@ -165,11 +165,11 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 #### There is a Pre-built option for DreamBox!
 
-![/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
+![/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
 #### Your DreamBox will be built in the factory and shipped to you!
 
-![/images/prebuilt-dreambox.JPG](https://app.forestry.io/sites/vn-z1tuw401ksg/body-media//images/prebuilt-dreambox.JPG)
+![/images/prebuilt-dreambox.JPG](/images/prebuilt-dreambox.JPG)
 
 ***
 
