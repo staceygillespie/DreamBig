@@ -15,11 +15,11 @@ _template: page
 
 Get **$100 off a** **[DreamBox](https://www.createroom.com/products/dreambox/?srrf=HbnB5)** using my code:<b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span>
 
-Sign up to be the first to learn the details of the <b> <span style="color:#bf6667;font-size:xx-large;">**Mother's Day Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/mothers-day-sale).
+Sign up to be the first to learn the details of the <span style="color:#bf6667;font-size:xx-large;">**Mother's Day Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/mothers-day-sale).
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
-#### Book a \<span style="color:#bf6667;font-size:large;>***One on One Consultation***</span> with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
+#### Book a \<span style="color:#bf6667;font-size:large;>***One on One Consultation***</span> with me to talk about what setup you'd like for your home or to see my DreamBox, [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.</b>
 
 ##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b> <span style="color:#bf6667;font-size:xx-large;">**STACEY100**</span> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
 
