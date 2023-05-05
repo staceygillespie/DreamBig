@@ -5,18 +5,6 @@ featured_image: /images/stacey-gillespie-2-17-22-56.jpg
 _template: post
 ---
 
-+++
-date = 2021-03-28T02:18:30Z
-description = "I went from clutter to organizational joy"
-disable\_share = false
-featured\_image = "/images/stacey-gillespie-2-17-22-56.jpg"
-tags = \[]
-title = "DreamBox"
-\[menu.main]
-weight = 4
-
-+++
-
 <body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">
