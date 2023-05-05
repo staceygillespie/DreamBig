@@ -6,17 +6,6 @@ tags:
   - scene
 ---
 
-+++
-date = 2021-05-03T19:39:15Z
-description = "this is a work in progress"
-disable\_share = false
-draft = true
-featured\_image = ""
-tags = \["scene"]
-title = "There is more to come!"
-
-+++
-
 <body style="background-color:#fff1d9;">
 
 <span style="color:#000000;">
