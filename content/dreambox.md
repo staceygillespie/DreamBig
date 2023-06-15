@@ -11,6 +11,8 @@ _template: post
 
 [Deals page](/current-deals)
 
+<!---->
+
 [Check out the DreamBox 2!](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)
 
 Our best DreamBox EVER!
@@ -37,6 +39,8 @@ Our best DreamBox EVER!
   “Designed to hold up to 800 lbs, the DreamBox 2 features a reinforced frame and innovative custom hinges.”
 
 Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**DreamBox 2 and 4th of July Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/dreambox-2 "DreamBox 2 & 4th of July Sale").
+
+<!---->
 
 #### *The* *[DreamBox](https://www.createroom.com/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
 
