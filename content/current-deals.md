@@ -1,6 +1,6 @@
 ---
 title: Current Deals
-featured_image: /images/createroom_reneemothersday-25.jpg
+featured_image: /CreateRoom_DreamBox2Launch_2023-8095.jpg
 description: Exclusive limited-time sales while supplies last!
 _template: page
 ---
