@@ -27,6 +27,12 @@ Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
 ##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span></b> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
 
+![](/CreateRoom_DreamBox2Launch_2023--1.jpg)
+
+\*\*\*\*![](/CreateRoom_DreamBox2Launch_2023-7909.jpg)
+
+\*\*\*\*![](/CreateRoom_DreamBox2Launch_2023-7445.jpg "The new table has no legs in the way!")
+
 **$50 off the** **[CUBBY](https://www.createroom.com/products/cubby?srrf=HbnB5). Use the code STACEY50**![](/images/create-room-cubby-bts-sale.jpg)
 
 **$75 off the**  **[SEW STATION](https://www.createroom.com/collections/furniture/products/sew-station?srrf=HbnB5).  Use the code STACEY75**
