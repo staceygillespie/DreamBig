@@ -21,9 +21,6 @@ Our best DreamBox EVER!
 * MORE VALUE
 * MORE CREATIVITY
 * MORE JOY
-
-<!---->
-
 * MORE CUSTOMIZABLE      
   “You have a unique personality and so should your DreamBox! Personalize to perfection with new functionality and unparalleled flexibility.”  
 * MORE STORAGE, BETTER STORAGE    
