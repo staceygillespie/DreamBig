@@ -23,7 +23,7 @@ Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
-#### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see my [DreamBox](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
+#### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see my [DreamBox 2](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
 
 ##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span></b> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
 
