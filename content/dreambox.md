@@ -52,7 +52,7 @@ Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:lar
 
 ***
 
-![](/CreateRoom_DreamBox2Launch_2023--1.jpg "The new DreamBox 2")![](/CreateRoom_DreamBox2Launch_2023--1.jpg)
+![](/CreateRoom_DreamBox2Launch_2023--1.jpg "The new DreamBox 2")
 
 ***
 
