@@ -31,7 +31,7 @@ you can also set up a virtual consultation with me [here](https://calendly.com/s
     <input type="email" name="email">
   </label>
 
-  <!-- -->
+  <br>
 
   <label>
     Your message:
