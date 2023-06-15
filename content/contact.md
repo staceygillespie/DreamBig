@@ -20,6 +20,22 @@ Feel free to contact me with any questions about my projects, my DreamBox, or an
 
 you can also set up a virtual consultation with me [here](https://calendly.com/staceycreateroom/30min).
 
-{{<form-contact action="https://formspree.io/f/mayayljz">}}
+<!-- modify this form HTML and place wherever you want your form -->
+
+<form
+  action="https://formspree.io/f/xrgvnkwq"
+  method="POST"
+>
+  <label>
+    Your email:
+    <input type="email" name="email">
+  </label>
+  <label>
+    Your message:
+    <textarea name="message"></textarea>
+  </label>
+  <!-- your other form fields go here -->
+  <button type="submit">Send</button>
+</form>
 
 </span></body>
