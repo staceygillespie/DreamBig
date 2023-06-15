@@ -27,9 +27,12 @@ you can also set up a virtual consultation with me [here](https://calendly.com/s
   method="POST"
 >
   <label>
-    Your email:
+    Email:
     <input type="email" name="email">
   </label>
+
+  <!-- -->
+
   <label>
     Your message:
     <textarea name="message"></textarea>
