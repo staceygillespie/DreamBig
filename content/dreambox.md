@@ -13,9 +13,7 @@ _template: post
 
 #### *The* *[DreamBox](https://www.createroom.com/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
 
-#### Enter the **[Replica Surfaces x Create Room Giveaway](https://www.createroom.com/blogs/news/replica-surfaces-create-room-giveaway/?srrf=HbnB5)** before April 23rd and see all the discounts available [here](https://www.dreambigwithstacey.com/current-deals/).
-
-Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**Mother's Day Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/mothers-day-sale).
+Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**4th of July Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/dreambox-2 "DreamBox 2 & 4th of July Sale").
 
 ##### Get a **$100 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY100**</span>
 
