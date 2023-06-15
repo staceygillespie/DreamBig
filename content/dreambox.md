@@ -17,13 +17,10 @@ _template: post
 
 Our best DreamBox EVER!
 
-* more customizability
-* more storage
-* more function
-* more value
-* more strength
-* more creativity
-* more joy
+* MORE FUNCTION
+* MORE VALUE
+* MORE CREATIVITY
+* MORE JOY
 
 <!---->
 
@@ -38,7 +35,7 @@ Our best DreamBox EVER!
 * ENHANCED STRENGTH, ENDURING QUALITY
   “Designed to hold up to 800 lbs, the DreamBox 2 features a reinforced frame and innovative custom hinges.”
 
-Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**DreamBox 2 and 4th of July Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/dreambox-2 "DreamBox 2 & 4th of July Sale").
+Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**DreamBox 2** and **4th of July Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/dreambox-2 "DreamBox 2 & 4th of July Sale").
 
 <!---->
 
