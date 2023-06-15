@@ -28,16 +28,17 @@ you can also set up a virtual consultation with me [here](https://calendly.com/s
 >
   <label>
     Email:
+    <br>
     <input type="email" name="email">
   </label>
-
   <br>
-
   <label>
     Your message:
+    <br>
     <textarea name="message"></textarea>
   </label>
   <!-- your other form fields go here -->
+  <br>
   <button type="submit">Send</button>
 </form>
 
