@@ -11,9 +11,34 @@ _template: post
 
 [Deals page](/current-deals)
 
-#### *The* *[DreamBox](https://www.createroom.com/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
+[Check out the DreamBox 2!](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)
 
-Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**4th of July Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/dreambox-2 "DreamBox 2 & 4th of July Sale").
+Our best DreamBox EVER!
+
+* more customizability
+* more storage
+* more function
+* more value
+* more strength
+* more creativity
+* more joy
+
+<!---->
+
+* MORE CUSTOMIZABLE      
+  “You have a unique personality and so should your DreamBox! Personalize to perfection with new functionality and unparalleled flexibility.”  
+* MORE STORAGE, BETTER STORAGE    
+  “Maximize your space and optimize craft time with increased storage capacity and revolutionized organization solutions.”  
+* FASTER SETUP + EASIER ACCESS 
+  “Fast-track your creativity with upgraded features and streamlined access to supplies.”
+* ELEVATED ENVIRONMENT  
+  “Shed new light on your creativity! The DreamBox 2 comes standard with a single light! Upgrade to the Deluxe Crown Double Light accessory for maximum brightness.      
+* ENHANCED STRENGTH, ENDURING QUALITY
+  “Designed to hold up to 800 lbs, the DreamBox 2 features a reinforced frame and innovative custom hinges.”
+
+Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**DreamBox 2 and 4th of July Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/dreambox-2 "DreamBox 2 & 4th of July Sale").
+
+#### *The* *[DreamBox](https://www.createroom.com/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
 
 ##### Get a **$100 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY100**</span>
 
