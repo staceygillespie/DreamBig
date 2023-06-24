@@ -39,7 +39,7 @@ Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
 \*USA only
 
-Don't forget to choose my name in the drop-down menu for who helped you!
+I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu for who helped you!
 
 [![](/videolink.jpg "See my setup!")](https://www.youtube.com/watch?v=OKGi6VM1B6E)[![](/ship1week.jpg)](https://www.createroom.com/?srrf=HbnB5)
 
