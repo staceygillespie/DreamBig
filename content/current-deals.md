@@ -37,7 +37,7 @@ Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
 Don't forget to choose my name in the drop-down menu for who helped you!
 
-![](/videolink.jpg)<br>![](/ship1week.jpg)
+[![](/videolink.jpg "See my setup!")](https://www.youtube.com/watch?v=OKGi6VM1B6E)<br>[![](/ship1week.jpg)](https://www.createroom.com/?srrf=HbnB5)
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
