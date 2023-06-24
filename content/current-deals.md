@@ -173,7 +173,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ![/images/img\_0601.jpg](/images/img_0601.jpg "Sew Station")
 
-### [Side Tables (DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5)
+### Side Tables [(DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5) | [(DreamBox 2)](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5)
 
 ![/images/gillespie-stacey4-27-21-32\_crop.jpg](/images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
 
