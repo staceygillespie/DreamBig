@@ -15,6 +15,8 @@ _template: page
 
 ##### The <b><span style="color:#bf6667;font-size:xx-large;">The **[4th of July Sale](https://www.createroom.com/?srrf=HbnB5)** is live, featuring the newly launched **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**!</span></b> The sale lasts **June 23 - July 6**! *Early access* with my codes starts at **10 am MST / 12 pm EST**.
 
+![](</4thofJuly 23 Sale Reminders-03.jpg>)
+
 #### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
 Free Aroma Kit for first 1776 ($90 value)<br>
