@@ -37,6 +37,10 @@ Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
 Don't forget to choose my name in the drop-down menu for who helped you!
 
+![](/videolink.jpg)
+
+![](/ship1week.jpg)
+
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
 #### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see my [DreamBox 2](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
@@ -44,6 +48,8 @@ Don't forget to choose my name in the drop-down menu for who helped you!
 ##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span></b> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
 
 ![](/CreateRoom_DreamBox2Launch_2023--1.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7909.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7445.jpg "The new table has no legs in the way!")
+
+#### Permanent Deals
 
 **$50 off the** **[CUBBY](https://www.createroom.com/products/cubby?srrf=HbnB5). Use the code STACEY50**![](/images/create-room-cubby-bts-sale.jpg)
 
