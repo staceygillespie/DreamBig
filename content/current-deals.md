@@ -17,15 +17,19 @@ _template: page
 
 #### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
-Free Aroma Kit for first 1776 ($90 value)
-**$300** off [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)
-**$200** off [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)
-**$50** off [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
+###### Free Aroma Kit for first 1776 ($90 value)
+
+###### **$300** off [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)
+
+###### **$200** off [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)
+
+###### **$50** off [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
+
 with my code: <b><span style="color:#bf6667;font-size:xx-large;">**[STACEY300](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**!</span></b>
 
 #### Already own a DreamBox?
 
-###### **15%** off [Accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5),<br>[DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58) + [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
+##### **15%** off [Accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5),<br>[DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58) + [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
 
 with my code: <b><span style="color:#bf6667;font-size:xx-large;">**[STACEY15](https://www.createroom.com/collections/accessories?srrf=HbnB5)**!</span></b>
 
