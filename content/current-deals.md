@@ -13,9 +13,9 @@ _template: page
 
 ![](/dreamiest.gif)
 
-##### The <b><span style="color:#bf6667;font-size:xx-large;">The **4th of July Sale** is live, with the newly launched **DreamBox 2**!</span></b> The sale lasts **June 23 - July 6**! *Early access* with my codes starts at **10 am MST / 12 pm EST**.
+##### The <b><span style="color:#bf6667;font-size:xx-large;">The **4th of July Sale** is live, featuring the newly launched **DreamBox 2**!</span></b> The sale lasts **June 23 - July 6**! *Early access* with my codes starts at **10 am MST / 12 pm EST**.
 
-##### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox/?srrf=HbnB5)**?
+#### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox/?srrf=HbnB5)**?
 
 Free Aroma Kit for first 1776 ($90 value)
 **$300** off DreamBox 2
@@ -23,11 +23,9 @@ Free Aroma Kit for first 1776 ($90 value)
 **$50** off Deluxe crown
 with my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY300**!</span></b>
 
-##### Already own a DreamBox?
+#### Already own a DreamBox?
 
-###### **15%** off Accessories,
-
-###### DreamCart + Cubby
+###### **15%** off Accessories,<br>DreamCart + Cubby
 
 with my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY15**!</span></b>
 
@@ -36,6 +34,8 @@ Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 **12mo 0% financing**
 
 \*USA only
+
+Don't forget to choose my name in the drop-down menu for who helped you!
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
