@@ -49,6 +49,12 @@ I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu f
 
 ![](/CreateRoom_DreamBox2Launch_2023--1.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7909.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7445.jpg "The new table has no legs in the way!")
 
+The new [Deluxe Crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5) adds a second light to the DreamBox 2 for a bright workspace!<br>
+The new table has no legs and allows easier access to the bigger storage under it.<br>
+Short dividers: 22" from bottom of center shelves to table<br>
+Long dividers: 14"<br>
+The new [2-Drawer accessory](https://www.createroom.com/products/2-built-in-drawers?srrf=HbnB5) for the DreamBox 2 can also be added.
+
 ## Permanent Deals
 
 **$50 off the [CUBBY](https://www.createroom.com/products/cubby?srrf=HbnB5). Use the code STACEY50**![](/images/create-room-cubby-bts-sale.jpg)
