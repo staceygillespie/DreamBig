@@ -11,7 +11,7 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-![](/dreamiest.gif)
+![](/dreamiest2.jpg)<br>![](/dreamiest.gif)
 
 ##### The <b><span style="color:#bf6667;font-size:xx-large;">The **4th of July Sale** is live, featuring the newly launched **DreamBox 2**!</span></b> The sale lasts **June 23 - July 6**! *Early access* with my codes starts at **10 am MST / 12 pm EST**.
 
@@ -37,9 +37,7 @@ Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
 Don't forget to choose my name in the drop-down menu for who helped you!
 
-![](/videolink.jpg)
-
-![](/ship1week.jpg)
+![](/videolink.jpg)<br>![](/ship1week.jpg)
 
 [Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
