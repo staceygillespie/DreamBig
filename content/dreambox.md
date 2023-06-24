@@ -36,13 +36,13 @@ Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:lar
 
 <!---->
 
-#### *The* *[DreamBox](https://www.createroom.com/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
+#### *The* *[DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
 
 ##### Get a **$200 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY200**</span>
 
-##### Get a **$75 discount** off a Sew Station by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY75**</span>
+##### Get a **$75 discount** off a [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5) by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY75**</span>
 
-##### Get a **$50 discount** off a DreamCart or Cubby by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY50**</span>
+##### Get a **$50 discount** off a [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5) or [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5) by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY50**</span>
 
 ###### <b> Book a **One on One Consultation** with me to talk about what setup you'd like for your home or to see my [DreamBox 2](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual ](https://calendly.com/staceycreateroom/30min)or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.<b>
 
@@ -91,7 +91,7 @@ See how Anna personalized her totes with fun liners -- and did you notice her Dr
 
 ![](/images/anna-wilson.jpg)![](/images/createroom_reneemothersday-25.jpg)
 
-Renee decorated her totes and also used the new [wallpaper](https://www.createroom.com/pages/wallpaper-detail?ref=JvA8) on her DreamBox.
+Renee decorated her totes and also used the new [wallpaper](https://www.createroom.com/pages/wallpaper-detail?srrf=HbnB5) on her DreamBox.
 
 * Store them in other places - swap them in and out
 
@@ -143,11 +143,11 @@ I keep it at back of the table and can easily to pull it out to use
 
 ***
 
-## Other Create Room                    [FURNITURE](https://www.createroom.com/collections/furniture?ref=YJvA8 "Furniture") and [ACCESSORIES](https://www.createroom.com/collections/accessories/?ref=YJvA8 "Accessories")
+## Other Create Room                    [FURNITURE](https://www.createroom.com/collections/furniture?srrf=HbnB5 "Furniture") and [ACCESSORIES](https://www.createroom.com/collections/accessories/?srrf=HbnB5 "Accessories")
 
 ***
 
-### [SEW STATION](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew") {#sew-station}
+### [SEW STATION](https://www.createroom.com/products/sew-station?srrf=HbnB5 "Sew") {#sew-station}
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save $50 <span style="font-size:small;"></span></b>
 
@@ -170,7 +170,7 @@ Reasons I bought my Sew Station:
 
 ***
 
-### [DREAMCART](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dreamcart") {#dreamcart}
+### [DREAMCART](https://www.createroom.com/products/dream-cart?srrf=HbnB5 "Dreamcart") {#dreamcart}
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG50</span> to save $50 <span style="font-size:small;"></span></b>
 
@@ -183,13 +183,13 @@ Reasons I bought my Sew Station:
 
 ![](/images/ben-building-dreamcart.jpeg)![](/images/dreamcart.JPG)![](/images/stacey-gillespie-2-17-22-40.jpg)
 
-My [DreamCart](https://www.createroom.com/products/dream-cart "DreamCart") looks so cute when I decorated the bins!
+My [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5 "DreamCart") looks so cute when I decorated the bins!
 
 I love using my DreamCart as extra table space when people come to watercolor with me. I can put it in front of the TV or use it in front of our computer when we are following a tutorial.  It also makes a handy table for playing games!
 
 ***
 
-### [SIDE TABLES](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8 "Side Tables") {#side-tables}
+### SIDE TABLES [(DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5) | [(DreamBox 2)](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5) {#side-tables}
 
 * I love having extra table space for my big projects
 * Pros:
@@ -207,7 +207,7 @@ I have both side tables and love using both.
 
 ***
 
-### [PAPER ORGANIZER](https://www.createroom.com/collections/accessories/products/paper-organizer?_pos=1&_sid=159b89d2d&_ss=r?ref=YJvA8 "Paper Organizer")
+### [PAPER ORGANIZER](https://www.createroom.com/products/paper-organizer?_pos=1&_sid=159b89d2d&_ss=r?srrf=HbnB5 "Paper Organizer")
 
 * Love the way it looks in my setup
 * Can customize it to fit stamp pads, vinyl rolls..etc.
@@ -216,7 +216,7 @@ I have both side tables and love using both.
 
 ***
 
-### [8 SHALLOW TOTES](https://www.createroom.com/collections/inview-totes/products/8-shallow-totes?_pos=1&_sid=867c6261c&_ss=r?ref=YJvA8 "Shallow Totes")
+### [8 SHALLOW TOTES](https://www.createroom.com/products/8-shallow-totes?_pos=1&_sid=867c6261c&_ss=r?srrf=HbnB5 "Shallow Totes")
 
 * Love the way these let me micro organize
 
@@ -224,7 +224,7 @@ I have both side tables and love using both.
 
 ***
 
-### [TOOL CUBBY](https://www.createroom.com/collections/accessories/products/tool-cubby?ref=YJvA8 "Tool Cubby")
+### [TOOL CUBBY](https://www.createroom.com/products/tool-cubby?srrf=HbnB5 "Tool Cubby")
 
 * Use for pens, markers, stamp pads, paint brushes, etc.
 
@@ -232,7 +232,7 @@ I have both side tables and love using both.
 
 ***
 
-### [CRAFTER’S CADDY](https://www.createroom.com/collections/accessories/products/crafters-caddy?_pos=5&_sid=9158ee687&_ss=r?ref=YJvA8 "Caddy")
+### [CRAFTER’S CADDY](https://www.createroom.com/products/crafters-caddy?_pos=5&_sid=9158ee687&_ss=r?srrf=HbnB5 "Caddy")
 
 * I love a trash can connected to my table and a place to hold my drink
 * Used to share one for both boxes and found I needed 2
@@ -241,7 +241,7 @@ I have both side tables and love using both.
 
 ***
 
-### [CUTTING MAT](https://www.createroom.com/collections/accessories/products/limited-edition-cutting-mat?_pos=7&_sid=ea7117559&_ss=r?ref=YJvA8 "Cutting Mat")
+### [CUTTING MAT](https://www.createroom.com/products/limited-edition-cutting-mat?_pos=7&_sid=ea7117559&_ss=r?srrf=HbnB5 "Cutting Mat")
 
 * Fits table exactly and works well
 * But I like the look of other mats better
@@ -250,7 +250,7 @@ I have both side tables and love using both.
 
 ***
 
-### [TOTE LIDS](https://www.createroom.com/collections/inview-totes/products/inview%E2%84%A2-tote-lid?_pos=6&_sid=3217598b1&_ss=r?ref=YJvA8 "Tote Lids")
+### [TOTE LIDS](https://www.createroom.com/products/inview%E2%84%A2-tote-lid?_pos=6&_sid=3217598b1&_ss=r?srrf=HbnB5 "Tote Lids")
 
 * I love them when taking totes to a class or get together
 * They are great for stacking totes
@@ -264,7 +264,7 @@ I have both side tables and love using both.
 
 ***
 
-### [PLASTIC NOTION TRAY](https://www.createroom.com/collections/inview-totes/products/plastic-notions-tray-inserts?_pos=2&_sid=708725df2&_ss=r?ref=YJvA8 "Notion Tray")
+### [PLASTIC NOTION TRAY](https://www.createroom.com/products/plastic-notions-tray-inserts?_pos=2&_sid=708725df2&_ss=r?srrf=HbnB5 "Notion Tray")
 
 * great for more organization
 
@@ -272,7 +272,7 @@ I have both side tables and love using both.
 
 ***
 
-### [POWER PACKAGE](https://www.createroom.com/collections/accessories/products/power-package?ref=YJvA8 "Power Package")
+### [POWER PACKAGE](https://www.createroom.com/products/power-package?srrf=HbnB5 "Power Package")
 
 **Power Up!**
 
@@ -291,7 +291,7 @@ I have both side tables and love using both.
 
 ***
 
-### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
+### Purchasing the DreamBox in the [US](https://www.createroom.com/?srrf=HbnB5 "US Link"), [UK/EU](https://uk.createroom.com/?srrf=HbnB5 "UK & EU Link"), [Canada](https://ca.createroom.com/?srrf=HbnB5 "Canada Link")
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
@@ -301,6 +301,6 @@ Check out the NEW Products [Here](/current-deals/ "Deal page").
 
 ###### **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to **[Let’s Make Art](https://prz.io/JaoNveF8 "Refer a friend")** (I want to share my love of watercolor with you!) or a $10 gift card to Amazon.   *\*When you use my code or links Create Room gives me a little money.*
 
-###### \*\* I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?ref=YJvA8 "DreamBox"), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dream Cart") myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
+###### \*\* I am an affiliate for Create Room.  I started this journey as a very happy customer who loves their products.  I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?srrf=HbnB5 "DreamBox"), my [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5 "Sew Station") and my [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5 "Dream Cart") myself.  Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links.  I will always be honest about what I like about these products and anything else I talk about on my website.
 
 </span></body>
