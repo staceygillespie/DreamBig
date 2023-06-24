@@ -11,9 +11,25 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-##### The <b><span style="color:#bf6667;font-size:xx-large;">**DreamBox 2 launch** and **4th of July Sale**</span></b> is **June 23 - July 6**! *Early access* starts at **10 am MT**.
+![](/dreamiest.gif)
 
-##### Looking to purchase a **[DreamBox](https://www.createroom.com/products/dreambox/?srrf=HbnB5)**? *WHITE ERGO DIY shipping as fast as 1 week!*
+##### The <b><span style="color:#bf6667;font-size:xx-large;">The **4th of July Sale** is live, with the newly launched **DreamBox 2**!</span></b> The sale lasts **June 23 - July 6**! *Early access* with my codes starts at **10 am MST / 12 pm EST**.
+
+##### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox/?srrf=HbnB5)**?
+
+Free Aroma Kit for first 1776 ($90 value)
+**$300** off DreamBox 2
+**$200** off Pre-built
+**$50** off Deluxe crown
+with my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY300**!</span></b>
+
+##### Already own a DreamBox?
+
+###### **15%** off Accessories,
+
+###### DreamCart + Cubby
+
+with my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY15**!</span></b>
 
 Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
