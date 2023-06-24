@@ -17,14 +17,10 @@ _template: page
 
 #### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
-###### Free Aroma Kit for first 1776 ($90 value)
-
-###### **$300** off [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)
-
-###### **$200** off [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)
-
-###### **$50** off [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
-
+Free Aroma Kit for first 1776 ($90 value)<br>
+**$300** off [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)<br>
+**$200** off [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)<br>
+**$50** off [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)<br>
 with my code:\*\* <b><span style="color:#bf6667;font-size:xx-large;">[STACEY300](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)\*\*!</span></b>
 
 #### Already own a DreamBox?
@@ -51,7 +47,7 @@ I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu f
 
 ![](/CreateRoom_DreamBox2Launch_2023--1.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7909.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7445.jpg "The new table has no legs in the way!")
 
-#### Permanent Deals
+## Permanent Deals
 
 **$50 off the [CUBBY](https://www.createroom.com/products/cubby?srrf=HbnB5). Use the code STACEY50**![](/images/create-room-cubby-bts-sale.jpg)
 
