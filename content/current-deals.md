@@ -20,14 +20,14 @@ _template: page
 Free Aroma Kit for first 1776 ($90 value)
 **$300** off [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)
 **$200** off [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)
-**$50** off Deluxe crown
+**$50** off [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
 with my code: <b><span style="color:#bf6667;font-size:xx-large;">**[STACEY300](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**!</span></b>
 
 #### Already own a DreamBox?
 
-###### **15%** off Accessories,<br>[DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?rsrrf=HbnB58) + [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
+###### **15%** off [Accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5),<br>[DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58) + [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
 
-with my code: <b><span style="color:#bf6667;font-size:xx-large;">**[STACEY15](https://www.createroom.com/?srrf=HbnB5)**!</span></b>
+with my code: <b><span style="color:#bf6667;font-size:xx-large;">**[STACEY15](https://www.createroom.com/collections/accessories?srrf=HbnB5)**!</span></b>
 
 Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
@@ -49,25 +49,25 @@ Don't forget to choose my name in the drop-down menu for who helped you!
 
 #### Permanent Deals
 
-**$50 off the** **[CUBBY](https://www.createroom.com/products/cubby?srrf=HbnB5). Use the code STACEY50**![](/images/create-room-cubby-bts-sale.jpg)
+**$50 off the [CUBBY](https://www.createroom.com/products/cubby?srrf=HbnB5). Use the code STACEY50**![](/images/create-room-cubby-bts-sale.jpg)
 
-**$75 off the**  **[SEW STATION](https://www.createroom.com/collections/furniture/products/sew-station?srrf=HbnB5).  Use the code STACEY75**
+**$75 off the [SEW STATION](https://www.createroom.com/products/sew-station?srrf=HbnB5).  Use the code STACEY75**
 
 ![](/images/gillespie-stacey4-27-21-55.jpg)
 
-**$50 off the** **[DREAMCART](https://www.createroom.com/collections/furniture/products/dream-cart?rsrrf=HbnB58).  Use the code STACEY50**
+**$50 off the [DREAMCART](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58).  Use the code STACEY50**
 
 ![](/images/create-room-dreamcart-bts-sale.jpg)
 
-**$50 off the**  **[Side Tables](https://www.createroom.com/products/side-tables?rsrrf=HbnB5).  Use the code STACEY50**
+**$50 off the Side Tables [(DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5) | [(DreamBox 2)](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5).  Use the code STACEY50**
 
 ![](/images/create-room-side-tables-bts-sale.jpg)
 
-The [CROWN](https://www.createroom.com/products/dreambox-crown-with-light?srrf=HbnB5) with LIGHT
+The [CROWN with LIGHT (DreamBox 1)](https://www.createroom.com/products/dreambox-crown-with-light?srrf=HbnB5) | [DELUXE CROWN (DreamBox 2)](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
 
 ![](/images/noplacelikehomedreambox.jpg)
 
-[Crafter's Caddy](https://www.createroom.com/collections/accessories/products/crafters-caddy?srrf=HbnB5)
+[Crafter's Caddy](https://www.createroom.com/products/crafters-caddy?srrf=HbnB5)
 
 ![](/images/create-room-gifts-bts.JPG)
 
@@ -87,7 +87,7 @@ Learn how to attach the [head](https://blog.shannonfabrics.com/blog/kimberbear-s
 
 # **NEW Wallpaper!**
 
-I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**. Find them [here](https://www.createroom.com/pages/wallpaper-detail?ref=YJvA8).
+I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**. Find them [here](https://www.createroom.com/pages/wallpaper-detail?srrf=HbnB5).
 
 * 3 pre-sized panels
 * Peel and stick adhesive
@@ -103,7 +103,7 @@ I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new
 
 ### **Other NEW PRODUCTS**
 
-#### [Aromatherapy Kit](https://www.createroom.com/collections/aromatherapy/products/aromatherapy-kit?ref=YJvA8) and [Create Room Planner](https://www.createroom.com/products/planner?ref=YJvA8)
+#### [Aromatherapy Kit](https://www.createroom.com/products/aromatherapy-kit?srrf=HbnB5) and [Create Room Planner](https://www.createroom.com/products/planner?srrf=HbnB5)
 
 ![](/images/copy-of-createroom_jenhadfieldvalentines-1135.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1158.jpg)
 
@@ -113,7 +113,7 @@ I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new
 
 Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
-#### **[Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8)**
+#### **[Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5)**
 
 #### <b>Use the code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save $50 when buying a Sew Station <span style="font-size:small;">
 
@@ -121,25 +121,25 @@ Pre-built option! Your DreamBox will be built in the factory and shipped to you!
 
 ![](/images/gillespie-stacey4-27-21-58.jpg)
 
-#### [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
+#### [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5)
 
 #### Use the code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG50</span> to save $50 when buying a DreamCart <span style="font-size:small;">
 
 ![](/images/copy-of-createroom_jenhadfieldvalentines-1111.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1120.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0763.jpg)
 
-[Create Room Cubby](https://www.createroom.com/products/cubby?ref=YJvA8)
+[Create Room Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
 
 ![](/images/cr_4thofjuly-4117-1.jpg)
 
 More than one cubby can be placed side-by-side or stacked.
 
-#### [Side Tables]()
+#### Side Tables [(DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5) | [(DreamBox 2)](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5)
 
 ![](/images/dreambox-side-tables-nov-2019jpg.jpg)
 
 ***
 
-### The NEW Create Room [DiviDrawers](https://www.createroom.com/pages/drawer-detail?ref=YJvA8)
+### The NEW Create Room [DiviDrawers](https://www.createroom.com/pages/drawer-detail?srrf=HbnB5)
 
 You can choose which side of the DiviDrawer you'd like to display! Keep it a **solid** white or choose the **clear** side. Do you prefer seeing your supplies or covering them with a fun design from using a decorative paper you love?
 
@@ -147,7 +147,7 @@ You can choose which side of the DiviDrawer you'd like to display! Keep it a **s
 
   ![/images/cr\_4thofjuly-3467.jpg](/images/cr_4thofjuly-3467.jpg)
 
-  Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?ref=YJvA8 "tote differences") here.
+  Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?srrf=HbnB5 "tote differences") here.
 
   ![/images/stylesgif\_900x600\_crop\_center.gif](/images/stylesgif_900x600_crop_center.gif)
 
@@ -167,17 +167,17 @@ You can choose which side of the DiviDrawer you'd like to display! Keep it a **s
 
 ##### Code: **DREAMBIG**
 
-Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?ref=YJvA8 "tote differences") here.
+Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?srrf=HbnB5 "tote differences") here.
 
 ***
 
 ![/images/img\_0601.jpg](/images/img_0601.jpg "Sew Station")
 
-### [Side Tables](https://www.createroom.com/collections/accessories/products/side-tables?variant=19872388055102?ref=YJvA8)
+### [Side Tables (DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5)
 
 ![/images/gillespie-stacey4-27-21-32\_crop.jpg](/images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
 
-### [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8)
+### [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5)
 
 ![/images/dc.jpg](/images/dc.jpg)
 
@@ -195,9 +195,9 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ***
 
-##### Purchasing the DreamBox in the [US](https://www.createroom.com/?ref=5e41eeaf2e1c4 "US Link"), [UK/EU](https://uk.createroom.com/?ref=5e41eeaf2e1c4 "UK & EU Link"), [Canada](https://ca.createroom.com/?ref=5e41eeaf2e1c4 "Canada Link")
+##### Purchasing the DreamBox in the [US](https://www.createroom.com/?srrf=HbnB5 "US Link"), [UK/EU](https://uk.createroom.com/?srrf=HbnB5 "UK & EU Link"), [Canada](https://ca.createroom.com/?srrf=HbnB5 "Canada Link")
 
-###### \*\* I am an affiliate for Create Room. I started this journey as a very happy customer who loves their products. I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?ref=YJvA8 "DreamBox"), my [Sew Station](https://www.createroom.com/collections/furniture/products/sew-station?ref=YJvA8 "Sew Station") and my [DreamCart](https://www.createroom.com/collections/furniture/products/dream-cart?ref=YJvA8 "Dream Cart") myself. Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links. I will always be honest about what I like about these products and anything else I talk about on my website.
+###### \*\* I am an affiliate for Create Room. I started this journey as a very happy customer who loves their products. I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?srrf=HbnB5 "DreamBox"), my [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5 "Sew Station") and my [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5 "Dream Cart") myself. Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links. I will always be honest about what I like about these products and anything else I talk about on my website.
 
 </span></body>
 
