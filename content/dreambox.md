@@ -32,7 +32,7 @@ Our best DreamBox EVER!
 * ENHANCED STRENGTH, ENDURING QUALITY
   “Designed to hold up to 800 lbs, the DreamBox 2 features a reinforced frame and innovative custom hinges.”
 
-Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**DreamBox 2** and **4th of July Sale**</span> [here](https://form.jotform.com/Gillespie_Stacey/dreambox-2 "DreamBox 2 & 4th of July Sale").
+Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**DreamBox 2**</span> [here](https://form.jotform.com/Gillespie_Stacey/dreambox-2 "DreamBox 2").
 
 <!---->
 
@@ -291,7 +291,7 @@ I have both side tables and love using both.
 
 ***
 
-### Purchasing the DreamBox in the [US](https://www.createroom.com/?srrf=HbnB5 "US Link"), [UK/EU](https://uk.createroom.com/?srrf=HbnB5 "UK & EU Link"), [Canada](https://ca.createroom.com/?srrf=HbnB5 "Canada Link")
+### Purchasing the DreamBox in the [US](https://www.createroom.com "US Link"), [UK/EU](https://uk.createroom.com "UK & EU Link"), [Canada](https://ca.createroom.com "Canada Link")
 
 <b>Use the code <span style="color:#bf6667;font-size:xx-large;">DREAMBIG</span> to save $100 or £100! <span style="font-size:small;">(this code does not expire)</span></b>
 
