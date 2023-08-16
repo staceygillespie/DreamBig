@@ -11,6 +11,8 @@ _template: page
 
 [DreamBox page](/dreambox)
 
+![](/dreamiest-crop.gif)
+
 ### There is no event currently. But you can always use my code <b>\<span style="color:#bf6667 font-size:xx-large;>STACEY200</span></b> for $200 off a DreamBox.
 
 #### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
@@ -18,6 +20,8 @@ _template: page
 ##### [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)
 
 ##### [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
+
+![](</4thofJuly 23 Sale Reminders-03-crop.jpg>)
 
 #### Already own a DreamBox?
 
@@ -34,8 +38,6 @@ Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 \*USA only
 
 I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu for who helped you!
-
-[![](/videolink.jpg "See my setup!")](https://www.youtube.com/watch?v=OKGi6VM1B6E)
 
 [Browse the website](http://www.createroom.com) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
