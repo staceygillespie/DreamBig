@@ -38,7 +38,7 @@ Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:lar
 
 #### *The* *[DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
 
-##### Get a **$200 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY200**</span>
+##### Get a **$300 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY300**</span>
 
 ##### Get a **$75 discount** off a [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5) by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY75**</span>
 
