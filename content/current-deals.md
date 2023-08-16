@@ -13,7 +13,7 @@ _template: page
 
 [![](/dreamiest-crop.gif)](https://www.createroom.com)
 
-There is no event currently. But you can always use my code <b>\<span style="color:#bf6667 font-size:xx-large;>STACEY200</span></b> for $200 off a DreamBox. I also have other permanent codes below!
+#### There is no event currently. But you can always use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span></b> for $200 off a DreamBox. I also have other permanent codes below!
 
 #### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
