@@ -11,25 +11,21 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-[![](/dreamiest2.jpg)![](/dreamiest.gif)](https://www.createroom.com/?srrf=HbnB5)
-
-##### The <b><span style="color:#bf6667;font-size:xx-large;">The **[4th of July Sale](https://www.createroom.com/?srrf=HbnB5)** is live, featuring the newly launched **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**!</span></b> The sale lasts **June 23 - July 6**! *Early access* with my codes starts at **10 am MST / 12 pm EST**.
-
-![](</4thofJuly 23 Sale Reminders-03.jpg>)
+### There is no event currently. But you can always use my code <b>\<span style="color:#bf6667 font-size:xx-large;>STACEY200</span></b> for $200 off a DreamBox.
 
 #### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
-Free Aroma Kit for first 1776 ($90 value)<br>
-**$300** off [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)<br>
-**$200** off [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)<br>
-**$50** off [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)<br>
-with my code: <b><span style="color:#bf6667;font-size:xx-large;">[STACEY300](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)!</span></b>
+##### [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)
+
+##### [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
 
 #### Already own a DreamBox?
 
-##### **15%** off [Accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5),<br>[DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58) + [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
+##### [Accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5)
 
-with my code: <b><span style="color:#bf6667;font-size:xx-large;">[STACEY15](https://www.createroom.com/collections/accessories?srrf=HbnB5)!</span></b>
+##### [DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58)
+
+##### [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
 
 Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
@@ -39,9 +35,9 @@ Refer a friend to buy a DreamBox with me and receive a $20 gift card.
 
 I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu for who helped you!
 
-[![](/videolink.jpg "See my setup!")](https://www.youtube.com/watch?v=OKGi6VM1B6E)[![](/ship1week.jpg)](https://www.createroom.com/?srrf=HbnB5)
+[![](/videolink.jpg "See my setup!")](https://www.youtube.com/watch?v=OKGi6VM1B6E)
 
-[Browse the website](http://www.createroom.com/?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
+[Browse the website](http://www.createroom.com) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
 #### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see my [DreamBox 2](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
 
@@ -203,7 +199,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ***
 
-##### Purchasing the DreamBox in the [US](https://www.createroom.com/?srrf=HbnB5 "US Link"), [UK/EU](https://uk.createroom.com/?srrf=HbnB5 "UK & EU Link"), [Canada](https://ca.createroom.com/?srrf=HbnB5 "Canada Link")
+##### Purchasing the DreamBox in the [US](https://www.createroom.com "US Link"), [UK/EU](https://uk.createroom.com "UK & EU Link"), [Canada](https://ca.createroom.com "Canada Link")
 
 ###### \*\* I am an affiliate for Create Room. I started this journey as a very happy customer who loves their products. I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?srrf=HbnB5 "DreamBox"), my [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5 "Sew Station") and my [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5 "Dream Cart") myself. Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links. I will always be honest about what I like about these products and anything else I talk about on my website.
 
