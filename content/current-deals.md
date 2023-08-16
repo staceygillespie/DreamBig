@@ -205,7 +205,7 @@ Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/b
 
 ##### Purchasing the DreamBox in the [US](https://www.createroom.com "US Link"), [UK/EU](https://uk.createroom.com "UK & EU Link"), [Canada](https://ca.createroom.com "Canada Link")
 
-###### \*\* I am an affiliate for Create Room. I started this journey as a very happy customer who loves their products. I purchased both of my [DreamBoxes](https://www.createroom.com/products/dreambox?srrf=HbnB5 "DreamBox"), my [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5 "Sew Station") and my [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5 "Dream Cart") myself. Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links. I will always be honest about what I like about these products and anything else I talk about on my website.
+###### \*\* I am an affiliate for Create Room. I started this journey as a very happy customer who loves their products. I purchased my first two [DreamBoxes](https://www.createroom.com/products/dreambox?srrf=HbnB5 "DreamBox"), my [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5 "Sew Station") and my [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5 "Dream Cart") myself. Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links. I have recieved some free products including my DreamBox 2 and a Cubby. I will always be honest about what I like about these products and anything else I talk about on my website.
 
 </span></body>
 
