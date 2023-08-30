@@ -49,7 +49,7 @@ I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu f
 
 ##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY200**</span></b> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
 
-![](/CreateRoom_DreamBox2Launch_2023--1.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7909.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7445.jpg "The new table has no legs in the way!")
+<div>![](https://assets.tina.io/b056dbff-abf4-4312-9df6-2cb55b680326/CreateRoom_DreamBox2Launch_2023--1.jpg) ![](https://assets.tina.io/b056dbff-abf4-4312-9df6-2cb55b680326/CreateRoom_DreamBox2Launch_2023-7909.jpg) ![](https://assets.tina.io/b056dbff-abf4-4312-9df6-2cb55b680326/CreateRoom_DreamBox2Launch_2023-7445.jpg "The new table has no legs in the way!")</div>
 
 The new [Deluxe Crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5) adds a second light to the DreamBox 2 for a bright workspace!<br>
 The new table has no legs and allows easier access to the bigger storage under it.<br>
