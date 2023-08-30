@@ -60,18 +60,35 @@ The new [2-Drawer accessory](https://www.createroom.com/products/2-built-in-draw
 ## Permanent Deals
 
 **$50 off the [CUBBY](https://www.createroom.com/products/cubby?srrf=HbnB5). Use the code STACEY50**![](/images/create-room-cubby-bts-sale.jpg)
+![](/images/cr_4thofjuly-4117-1.jpg)
 
-**$75 off the [SEW STATION](https://www.createroom.com/products/sew-station?srrf=HbnB5).  Use the code STACEY75**
+More than one cubby can be placed side-by-side or stacked.
+
+**$75 off the [SEW STATION](https://www.createroom.com/products/sew-station?srrf=HbnB5). Use the code** <span style="color:#bf6667;font-size:xx-large;">STACEY75</span>
 
 ![](/images/gillespie-stacey4-27-21-55.jpg)
 
-**$50 off the [DREAMCART](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58).  Use the code STACEY50**
+Use the code: DREAMBIGSEW to save $50 when buying a Sew Station
+
+![](/images/ss.png)
+![](/images/gillespie-stacey4-27-21-58.jpg)
+![/images/img\_0601.jpg](/images/img_0601.jpg "Sew Station")
+
+#### **$50 off the [DREAMCART](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58).  Use the code** <span style="color:#bf6667;font-size:xx-large;">STACEY50</span>
 
 ![](/images/create-room-dreamcart-bts-sale.jpg)
+![/images/dc.jpg](/images/dc.jpg)
+![/images/dreamcart.JPG](/images/dreamcart.JPG)
 
-**$50 off the Side Tables [(DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5) | [(DreamBox 2)](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5).  Use the code STACEY50**
+Use the code: DREAMBIG50 to save $50 when buying a DreamCart
+
+![](/images/copy-of-createroom_jenhadfieldvalentines-1111.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1120.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0763.jpg)
+
+#### **$50 off the Side Tables [(DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5) | [(DreamBox 2)](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5).  Use the code STACEY50**
 
 ![](/images/create-room-side-tables-bts-sale.jpg)
+![](/images/dreambox-side-tables-nov-2019jpg.jpg)
+![/images/gillespie-stacey4-27-21-32\_crop.jpg](/images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
 
 The [CROWN with LIGHT (DreamBox 1)](https://www.createroom.com/products/dreambox-crown-with-light?srrf=HbnB5) | [DELUXE CROWN (DreamBox 2)](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
 
@@ -83,9 +100,13 @@ The [CROWN with LIGHT (DreamBox 1)](https://www.createroom.com/products/dreambox
 
 ![](/images/copy-of-createroom_jenhadfieldvalentines-1179.jpg)
 
-You can get your DreamBox **[prebuilt](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)!**
+#### You can get your DreamBox **[pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)**!
 
-![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
+![/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
+
+#### Your DreamBox will be built in the factory and shipped to you!
+
+![/images/prebuilt-dreambox.JPG](/images/prebuilt-dreambox.JPG)
 
 Join my Facebook page: [KimberBears for Children in Need ](https://www.facebook.com/groups/1154447808755842)to share who you've made a KimberBear for.
 
@@ -119,34 +140,6 @@ I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new
 
 #### ![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
 
-![](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
-
-Pre-built option! Your DreamBox will be built in the factory and shipped to you!
-
-#### **[Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5)**
-
-#### <b>Use the code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIGSEW</span> to save $50 when buying a Sew Station <span style="font-size:small;">
-
-![](/images/ss.png)
-
-![](/images/gillespie-stacey4-27-21-58.jpg)
-
-#### [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5)
-
-#### Use the code: <span style="color:#bf6667;font-size:xx-large;">DREAMBIG50</span> to save $50 when buying a DreamCart <span style="font-size:small;">
-
-![](/images/copy-of-createroom_jenhadfieldvalentines-1111.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1120.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0763.jpg)
-
-[Create Room Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
-
-![](/images/cr_4thofjuly-4117-1.jpg)
-
-More than one cubby can be placed side-by-side or stacked.
-
-#### Side Tables [(DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5) | [(DreamBox 2)](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5)
-
-![](/images/dreambox-side-tables-nov-2019jpg.jpg)
-
 ***
 
 ### The NEW Create Room [DiviDrawers](https://www.createroom.com/pages/drawer-detail?srrf=HbnB5)
@@ -169,39 +162,7 @@ You can choose which side of the DiviDrawer you'd like to display! Keep it a **s
 
 ***
 
-***
-
-###
-
-#### $100 off [DreamBox](/dreambox) anytime with my code!
-
-##### Code: **DREAMBIG**
-
-Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?srrf=HbnB5 "tote differences") here.
-
-***
-
-![/images/img\_0601.jpg](/images/img_0601.jpg "Sew Station")
-
-### Side Tables [(DreamBox 1)](https://www.createroom.com/products/side-tables?rsrrf=HbnB5) | [(DreamBox 2)](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5)
-
-![/images/gillespie-stacey4-27-21-32\_crop.jpg](/images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
-
-### [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5)
-
-![/images/dc.jpg](/images/dc.jpg)
-
-![/images/dreamcart.JPG](/images/dreamcart.JPG)
-
-***
-
-#### There is a Pre-built option for DreamBox!
-
-![/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
-
-#### Your DreamBox will be built in the factory and shipped to you!
-
-![/images/prebuilt-dreambox.JPG](/images/prebuilt-dreambox.JPG)
+##### $100 off [DreamBox](/dreambox) anytime with my code: **DREAMBIG**
 
 ***
 
