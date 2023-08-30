@@ -7,7 +7,7 @@ _template: page
 
 <body style="background-color:#fff1d9;">
 
-<span style="color:#000000;">
+<span style="color:#000000;img {display:inline-block;}">
 
 [DreamBox page](/dreambox)
 
@@ -43,7 +43,7 @@ Refer a friend to buy a DreamBox with me and receive a $25 gift card.
 
 I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu for who helped you!
 
-[Browse the website](http://www.createroom.com?srrf=HbnB5) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
+[Browse the website](http://www.createroom.com) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
 #### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see my [DreamBox 2](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
 
@@ -141,7 +141,7 @@ Upgrade your Create Room furniture or use anywhere around the house. The Create 
 
 ***
 
-##### Purchasing the DreamBox in the [US](https://www.createroom.com?srrf=HbnB5 "US Link"), [UK/EU](https://uk.createroom.com?srrf=HbnB5 "UK & EU Link"), [Canada](https://ca.createroom.com?srrf=HbnB5 "Canada Link")
+##### Purchasing the DreamBox in the [US](https://www.createroom.com "US Link"), [UK/EU](https://uk.createroom.com "UK & EU Link"), [Canada](https://ca.createroom.com "Canada Link")
 
 ###### \*\* I am an affiliate for Create Room. I started this journey as a very happy customer who loves their products. I purchased my first two [DreamBoxes](https://www.createroom.com/products/dreambox?srrf=HbnB5 "DreamBox"), my [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5 "Sew Station") and my [DreamCart](https://www.createroom.com/products/dream-cart?srrf=HbnB5 "Dream Cart") myself. Create Room did not give them to me, but they do compensate me every time you use one of my codes or buy through one of my links. I have recieved some free products including my [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5) and a [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5). I will always be honest about what I like about these products and anything else I talk about on my website.
 
