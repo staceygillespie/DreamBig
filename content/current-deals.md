@@ -11,11 +11,11 @@ _template: page
 
 [DreamBox page](/dreambox)
 
+![](/backtoschoolpic.jpg)
+
 ### Back to School Sale begins <b><span style="color:#bf6667;font-size:xx-large;">9/1</span></b>!
 
 ### Early access with my codes at 10 am MST / 12 pm EST
-
-[![](/dreamiest-crop.gif)](https://www.createroom.com)
 
 #### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
@@ -24,8 +24,6 @@ _template: page
 ##### With the puprchase of a DreamBox, get:<br>**$65** off popular [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5)<br>**$100** off [DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58)<br>**$150** off [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5)<br>**$50** off [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
 
 ##### with my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY300**</span></b>
-
-[![](</4thofJuly 23 Sale Reminders-03-crop.jpg>)](https://www.createroom.com)
 
 #### Already own a DreamBox?
 
@@ -42,8 +40,6 @@ Refer a friend to buy a DreamBox with me and receive a $25 gift card.
 #### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY300**</span></b> for $300 off a DreamBox. I also have permanent codes below!
 
 I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu for who helped you!
-
-[![](/videolink.jpg)](https://www.youtube.com/watch?v=OKGi6VM1B6E "See my setup!")
 
 [Browse the website](http://www.createroom.com) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
 
