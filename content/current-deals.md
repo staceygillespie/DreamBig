@@ -17,6 +17,8 @@ _template: page
 
 ### Early access with my codes at 10 am MST / 12 pm EST
 
+![](</Sale Announcement-02.jpg>)
+
 #### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
 ##### <span style="color:#bd3a5a">Free Planner</span> + faster shipping for the first 100<br>**$300** off [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)<br>**$300** off [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)<br>**$75** off [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
