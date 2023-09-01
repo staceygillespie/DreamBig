@@ -15,7 +15,7 @@ _template: page
 
 ### Back to School Sale begins <b><span style="color:#bf6667;font-size:xx-large;">9/1</span></b>!
 
-### Early access with my codes at 10 am MDT / 8 am EDT
+### Early access with my codes at 10 am MDT / 12 pm EDT
 
 ![](</Sale Announcement-02.jpg>)
 
