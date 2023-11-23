@@ -51,13 +51,15 @@ Refer a friend to buy a DreamBox with me and receive a $25 gift card.
 
 \*USA only
 
-### [My Setup](https://www.createroom.com/blogs/news/finding-organization-creativity-in-staceys-dreambox?srrf=HbnB5)
-
 #### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY300**</span></b> for $300 off a DreamBox. I also have permanent codes below!
 
 I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu for who helped you!
 
+### [My Setup](https://www.createroom.com/blogs/news/finding-organization-creativity-in-staceys-dreambox?srrf=HbnB5)
+
 [Browse the website](http://www.createroom.com) and let me know how I can help you! As a ***Creator Consultant***, I work on commission so I'd appreciate it if you use my codes and links. I can even set up invoices for your order.
+
+### [Here's what you can expect during a consultation!](https://www.createroom.com/blogs/news/creator-consultant-stacey-gillespie/?srrf=HbnB5)
 
 #### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see my [DreamBox 2](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
 
