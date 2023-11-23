@@ -51,7 +51,7 @@ Refer a friend to buy a DreamBox with me and receive a $25 gift card.
 
 \*USA only
 
-#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY300**</span></b> for $300 off a DreamBox. I also have permanent codes below!
+#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b> for $350 off a DreamBox. I also have permanent codes below!
 
 I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu for who helped you!
 
