@@ -29,7 +29,7 @@ _template: page
 
 #### **$350** off Ergo DreamBox<br>with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b>
 
-#### **$400** off DB [Pre-Built Service](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) - limited quantity
+#### **$400** off DB [Pre-Built Service](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5) - limited quantity
 
 ##### When purchased with a DreamBox:<br>**$50** off [Deluxe Crown w/ Double Light](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)<br>**$100** off both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5)<br>**$50** off [Built-In Drawers](https://www.createroom.com/products/2-built-in-drawers?srrf=HbnB5)<br>**$30** off organizing essentials kit<br>**$8** off Power Strip
 
@@ -99,7 +99,7 @@ The [CROWN with LIGHT (DreamBox 1)](https://www.createroom.com/products/dreambox
 [Crafter's Caddy](https://www.createroom.com/products/crafters-caddy?srrf=HbnB5)
 ![](/images/create-room-gifts-bts.JPG)![](/images/copy-of-createroom_jenhadfieldvalentines-1179.jpg)
 
-#### You can get your DreamBox **[pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)**!
+#### You can get your DreamBox **[pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)**!
 
 ![/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png](/images/dd1f0cfc-7671-4bb1-ad19-23aea8d96315.png)
 
@@ -114,44 +114,7 @@ Find the supplies needed and sewing tutorials at [Shannon Fabrics](https://blog.
 
 Learn how to attach the [head](https://blog.shannonfabrics.com/blog/kimberbear-stuffed-bear).
 
-# **NEW Wallpaper!**
-
-I put removable wallpaper on both of my DreamBoxes.  Now Create Room has **3 new wallpaper designs**. Find them [here](https://www.createroom.com/pages/wallpaper-detail?srrf=HbnB5).
-
-* 3 pre-sized panels
-* Peel and stick adhesive
-* Easy to remove and swap styles
-
-![](/images/createroom_bluetilewallpaper-1.jpg)![](/images/createroom_floralwallpaper-18.jpg)![](/images/createroom_buffaloplaidwallpaper-11.jpg)<body style="background-color:#fff1d9;">
-
-*
-
 **If your order is over $1000 and you use my codes** let me know your order number and I will send you a $10 gift card to **[Let’s Make Art](https://prz.io/JaoNveF8 "Refer a friend")** (I want to share my love of watercolor with you!) or a $10 gift card to Amazon. *\*Create Room compensates me when you use my code or links.*
-
-### **Other NEW PRODUCTS**
-
-#### [Aromatherapy Kit](https://www.createroom.com/products/aromatherapy-kit?srrf=HbnB5) and [Create Room Planner](https://www.createroom.com/products/planner?srrf=HbnB5)
-
-![](/images/copy-of-createroom_jenhadfieldvalentines-1135.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1158.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0516-2.jpg)
-
-***
-
-### The NEW Create Room [DiviDrawers](https://www.createroom.com/pages/drawer-detail?srrf=HbnB5)
-
-You can choose which side of the DiviDrawer you'd like to display! Keep it a **solid** white or choose the **clear** side. Do you prefer seeing your supplies or covering them with a fun design from using a decorative paper you love?
-
-![](/images/stacey-product-photos-22.jpg)
-Learn about the [New DiviDrawers vs. In-View totes](https://www.createroom.com/blogs/news/new-dividrawers-vs-inview-totes?srrf=HbnB5 "tote differences") here.
-![/images/stylesgif\_900x600\_crop\_center.gif](/images/stylesgif_900x600_crop_center.gif)
-Upgrade your Create Room furniture or use anywhere around the house. The Create Room DiviDrawers are the perfect combination of beauty and extreme function. Available for pre-order.
-
-<video width="640" height="480" controls>
-<source src="/images/tote-stacks_1.mp4" type="video/mp4">
-</video>
-
-***
-
-##### $100 off [DreamBox](/dreambox) anytime with my code: **DREAMBIG**
 
 ***
 
