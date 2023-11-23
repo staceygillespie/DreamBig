@@ -11,7 +11,7 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-![](/backtoschoolpic.jpg)
+![](/backtoschoolpic.jpg)![](/dreambig-blackfriday.gif)
 
 ### Black Friday Sale begins <b><span style="color:#bf6667;font-size:xx-large;">11/17</span></b>!
 
