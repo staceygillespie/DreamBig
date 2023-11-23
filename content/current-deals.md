@@ -13,25 +13,33 @@ _template: page
 
 ![](/backtoschoolpic.jpg)
 
-### Back to School Sale begins <b><span style="color:#bf6667;font-size:xx-large;">9/1</span></b>!
+### Black Friday Sale begins <b><span style="color:#bf6667;font-size:xx-large;">11/17</span></b>!
 
-### Early access with my codes at 10 am MDT / 12 pm EDT
+### Early access with my codes at 10 am MST / 12 pm EST
 
 ![](</Sale Announcement-02.jpg>)
 
-#### Looking to purchase a **[DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
+#### Purchasing a **[DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
-##### <span style="color:#bd3a5a">Free Planner</span> + faster shipping for the first 100<br>**$300** off [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)<br>**$300** off [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5)<br>**$75** off [Deluxe crown](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
+##### <span style="color:#bd3a5a">Free Happy Place Mug</span><br>+ Delivery by Christmas 🎄<br>- First 100 only!
 
-##### With the purchase of a DreamBox, get:<br>**$65** off popular [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5)<br>**$100** off [DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58)<br>**$150** off [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5)<br>**$50** off [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
+#### **$400** off White Shaker DreamBox<br>with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b>($50 is automatic)
 
-##### with my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY300**</span></b>
+#### **$350** off Ergo DreamBox<br>with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b>
 
-#### Already own a DreamBox?
+#### **$400** off DB [Pre-Built Service](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-pre-built-service/?srrf=HbnB5) - limited quantity
 
-##### 10% off [Accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5),<br>[DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58) + [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)
+##### When purchased with a DreamBox:<br>**$50** off [Deluxe Crown w/ Double Light](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)<br>**$100** off both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5)<br>**$50** off [Built-In Drawers](https://www.createroom.com/products/2-built-in-drawers?srrf=HbnB5)<br>**$30** off organizing essentials kit<br>**$8** off Power Strip
 
-##### with my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY10**</span></b>
+##### **$300** off [SewStation](https://www.createroom.com/products/sew-station?srrf=HbnB5)
+
+#### DreamBox Owner?<br>**$75** off [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)<br>**$100** off [DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58)<br>**$250** off [SewStation](https://www.createroom.com/products/sew-station?srrf=HbnB5)
+
+#### no code is needed!
+
+##### 20% off ALL [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5)
+
+##### with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY20**</span></b>
 
 Refer a friend to buy a DreamBox with me and receive a $25 gift card.
 
