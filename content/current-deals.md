@@ -17,7 +17,7 @@ _template: page
 
 ### Early access with my codes at 10 am MST / 12 pm EST
 
-![](</Sale Announcement-02.jpg>)
+![](</BF 2023 Sale is Live-04.jpg>)
 
 #### Purchasing a **[DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
