@@ -35,6 +35,8 @@ _template: page
 
 ##### **$300** off [SewStation](https://www.createroom.com/products/sew-station?srrf=HbnB5)
 
+![](</Copy of BF 23 Sale Details-11.jpg>)
+
 #### DreamBox Owner?<br>**$75** off [Cubby](https://www.createroom.com/products/cubby?srrf=HbnB5)<br>**$100** off [DreamCart](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58)<br>**$250** off [SewStation](https://www.createroom.com/products/sew-station?srrf=HbnB5)
 
 #### no code is needed!
