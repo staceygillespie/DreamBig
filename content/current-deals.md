@@ -43,6 +43,8 @@ Refer a friend to buy a DreamBox with me and receive a $25 gift card.
 
 ##### 20% off accessories<br>with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY20**</span></b><br>**$75** off [DreamCart 1](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58) / [DreamCart 2](https://www.createroom.com/products/dream-cart-2?rsrrf=HbnB58)<br>**$100** off the [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5)<br>**$75** off both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5)
 
+![](</unnamed (1).gif>)
+
 #### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b> for $350 off a DreamBox. I also have permanent codes below!
 
 I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu for who helped you!
