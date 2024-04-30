@@ -19,6 +19,8 @@ _template: page
 
 #### Get early access at 10 am MT | 12 pm ET<br>[when you set up your order with me!](https://calendly.com/staceycreateroom)
 
+![](/crown.jpg)
+
 #### Purchasing a **[DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
 
 ##### <a style="color:#bd3a5a">[Free Deluxe Crown](https://www.createroom.com/products/deluxe-crown-w-double-light/?srrf=HbnB5)</a><br>Extra $50 off Shaker<br>Extra $50 off the full set of totes<br>for the First 100 only!
