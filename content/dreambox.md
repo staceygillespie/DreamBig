@@ -13,7 +13,7 @@ _template: post
 
 <!---->
 
-##### Check out the Black Friday sale! See details [here](/current-deals)!
+##### Check out the Mother's Day sale! See details [here](/current-deals)!
 
 [Check out the DreamBox 2!](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)
 
