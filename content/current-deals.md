@@ -19,7 +19,7 @@ _template: page
 
 ##### <span style="color:#bd3a5a">[Free Deluxe Crown](https://www.createroom.com/products/deluxe-crown-w-double-light/?srrf=HbnB5)</span><br>Extra $50 off Shaker<br>Extra $50 off the full set of totes<br>for the First 100 only!
 
-##### **$350** off DreamBox/$400 off the Shaker<br>with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b>
+##### **$350** off DreamBox/**$400** off the Shaker<br>with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b>
 
 ##### **$250** off [Pre-Built Service](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
 
