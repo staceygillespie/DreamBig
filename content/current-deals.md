@@ -11,9 +11,7 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-![](/mothersday2024.jpg)
-
-![](/unnamed.gif)
+![](/mothersday2024.jpg)![](/unnamed.gif)
 
 A Crown for a Queen 👑
 
