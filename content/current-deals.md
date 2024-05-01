@@ -13,7 +13,7 @@ _template: page
 
 ![](/mothersday2024.jpg)![](/unnamed.gif)
 
-#### A Crown for a Queen 👑
+#### <span style="color:#9b3637;">A Crown for a Queen</span> 👑
 
 ### Mother's Day Sale begins <b><span style="color:#bf6667;font-size:xx-large;">5/2</span></b>!
 
