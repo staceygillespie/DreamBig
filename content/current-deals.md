@@ -27,7 +27,7 @@ _template: page
 
 ##### **$350** off DreamBox/**$400** off the Shaker<br>with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b>
 
-##### **$250** off [Pre-Built Service](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
+##### **$350** off [Pre-Built Service](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
 
 Refer a friend to buy a DreamBox with me and receive a $25 gift card.
 
