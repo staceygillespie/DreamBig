@@ -11,41 +11,21 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-![](/mothersday2024.jpg)![](/unnamed.gif)
+####
 
-#### <span style="color:#9b3637;">A Crown for a Queen</span> 👑
+#####
 
-### Mother's Day Sale begins <b><span style="color:#bf6667;font-size:xx-large;">5/2</span></b>!
+![](</unnamed (1).gif>)
 
-#### Get early access at 10 am MT | 12 pm ET<br>[when you set up your order with me!](https://calendly.com/staceycreateroom)
+#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY300**</span></b> for $300 off a DreamBox. I also have other permanent codes below!
 
-![](/crown.jpg)
-
-#### Purchasing a **[DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)**?
-
-##### <a style="color:#bd3a5a">Free [Deluxe Crown](https://www.createroom.com/products/deluxe-crown-w-double-light/?srrf=HbnB5)</a><br>Extra $50 off Shaker<br>Extra $50 off the full set of totes<br>for the First 100 only!
-
-##### **$350** off DreamBox/**$400** off the Shaker<br>with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b>
-
-##### **$350** off [Pre-Built Service](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
+#####
 
 Refer a friend to buy a DreamBox with me and receive a $25 gift card.
 
 **[12mo 0% financing](https://www.createroom.com/pages/financing/?srrf=HbnB5)**
 
 \*USA only
-
-#### When purchased with a DreamBox:
-
-##### **FREE** [Deluxe Crown w/ Double Light](https://www.createroom.com/products/deluxe-crown-w-double-light/?srrf=HbnB5)<br>**$50** off Full Tote package<br>**$100** off both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5)<br>**$100** off [DreamCart 2](https://www.createroom.com/products/dream-cart-2?rsrrf=HbnB58)<br>**$125** off [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5)<br>**$25** off Organizing Essentials
-
-#### DreamBox Owner?
-
-##### 20% off [accessories](https://www.createroom.com/collections/accessories?rsrrf=HbnB5)<br>with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY20**</span></b><br>**$75** off [DreamCart 1](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58) / [DreamCart 2](https://www.createroom.com/products/dream-cart-2?rsrrf=HbnB58)<br>**$100** off the [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5)<br>**$75** off both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?rsrrf=HbnB5)
-
-![](</unnamed (1).gif>)
-
-#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY350**</span></b> for $350 off a DreamBox. I also have permanent codes below!
 
 I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu for who helped you!
 
