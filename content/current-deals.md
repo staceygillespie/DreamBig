@@ -13,7 +13,7 @@ _template: page
 
 ![](/4th_of_July_LP_Banner_Desktop_11.webp)![](/4th.gif)
 
-### The 4th of July Sale is almost here! It's our BEST deal this year, with over $1,500 in savings and special extras for the first 100.
+### The 4th of July Sale is almost here! It's our BEST deal this year, with over $1,500 in savings and special extras for the first 100. Starts 6/27 at 12 pm MT!
 
 #### Save up to $400 on DreamBox!
 
