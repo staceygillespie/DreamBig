@@ -11,9 +11,25 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-####
+![](/4th_of_July_LP_Banner_Desktop_11.webp)![](/4th.gif)
 
-#####
+### The 4th of July Sale is almost here! It's our BEST deal this year, with over $1,500 in savings and special extras for the first 100.
+
+#### Save up to $400 on DreamBox!
+
+### Free Tote Package for first 100 orders ($299 value)
+
+![](/4thTotes.gif)
+
+#### The first 100 DreamBox orders will get the Full InView Tote Package FREE and ship from our warehouse as fast as one business day! Join our VIP Text Group to claim two hours early shopping access.
+
+#### Save $300 on Pre-built
+
+#### Save $500+ on accessories!
+
+##### Save $150 on DreamCart
+
+##### Save $350 on Sew Station
 
 ![](</unnamed (1).gif>)
 
