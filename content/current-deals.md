@@ -15,13 +15,13 @@ _template: page
 
 ### The 4th of July Sale is almost here! It's our BEST deal this year, with over $1,500 in savings and special extras for the first 100. Starts 6/27 at 12 pm MT!
 
-#### Save up to $400 on DreamBox!
+#### Save up to $400 on DreamBox! Use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY325**</span></b> for $325 off Ergo style or $400 off Shaker style DreamBox.
 
 ### Free Tote Package for first 100 orders ($299 value)
 
 ![](/4thTotes.gif)
 
-#### The first 100 DreamBox orders will get the Full InView Tote Package FREE and ship from our warehouse as fast as one business day! Join our VIP Text Group to claim two hours early shopping access.
+#### When I set up your order for you, you are guaranteed to get the free Full Tote Upgrade.
 
 #### Save $300 on Pre-built
 
@@ -29,11 +29,11 @@ _template: page
 
 ##### Save $150 on DreamCart
 
-##### Save $350 on Sew Station
+#### Save $350 on Sew Station with DreamBox. Best price of the year! Or $250 off with Sew Station alone. Use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY75**</span></b>
 
 ![](</unnamed (1).gif>)
 
-#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY300**</span></b> for $300 off a DreamBox. I also have other permanent codes below!
+#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY325**</span></b> for $325 (Ergo)/$400 (Shaker) off a DreamBox. I also have other permanent codes below!
 
 #####
 
