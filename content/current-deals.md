@@ -15,7 +15,7 @@ _template: page
 
 ### The 4th of July Sale is almost here! It's our BEST deal this year, with over $1,500 in savings and special extras for the first 100. Starts 6/27 at 12 pm MT!
 
-#### Save up to $400 on DreamBox! Use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY325**</span></b> for $325 off Ergo style or $400 off Shaker style DreamBox.
+#### Save up to $400 on [DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)! Use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY325**</span></b> for $325 off Ergo style or $400 off Shaker style DreamBox.
 
 ### Free Tote Package for first 100 orders ($299 value)
 
@@ -23,17 +23,17 @@ _template: page
 
 #### When I set up your order for you, you are guaranteed to get the free Full Tote Upgrade.
 
-#### Save $300 on Pre-built
+#### Save $300 on [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
 
-#### Save $500+ on accessories!
+#### Save $500+ on [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5)!
 
-##### Save $150 on DreamCart
+##### Save $150 on [DreamCart](https://www.createroom.com/products/dream-cart-2?rsrrf=HbnB58)
 
-#### Save $350 on Sew Station with DreamBox. Best price of the year! Or $250 off with Sew Station alone. Use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY75**</span></b>
+#### Save $350 on [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5) with DreamBox. Best price of the year! Or $250 off with Sew Station alone. Use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY75**</span></b>
 
 ![](</unnamed (1).gif>)
 
-#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY325**</span></b> for $325 (Ergo)/$400 (Shaker) off a DreamBox. I also have other permanent codes below!
+#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY325**</span></b> for $325 (Ergo)/$400 (Shaker) off a [DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5). I also have other permanent codes below!
 
 #####
 
