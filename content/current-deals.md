@@ -11,33 +11,47 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-![](/4th_of_July_LP_Banner_Desktop_11.webp)![](/4th.gif)
+![](/24_bts_title.jpg)![](/24_bts_vid.gif)
 
-### The 4th of July Sale is almost here! It's our BEST deal this year, with over $1,500 in savings and special extras for the first 100. Starts 6/27 at 12 pm MT!
+### Back to school sale with over $900 in savings! Starts 8/1 at 10 am MT, until 8/6!
 
-#### Save up to $400 on [DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)! Use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY325**</span></b> for $325 off Ergo style or $400 off Shaker style DreamBox.
+#### $385 off the [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5) with code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY385**</span></b>
 
-### Free Tote Package for first 100 orders ($299 value)
+#### $50 off [Deluxe Crown](https://www.createroom.com/products/deluxe-crown-w-double-light?srrf=HbnB5)
 
-![](/4thTotes.gif)
+#### $50 off [Full Tote Upgrade](https://www.createroom.com/products/dreambox-2?variant=40095364743230?srrf=HbnB5)
 
-#### When I set up your order for you, you are guaranteed to get the free Full Tote Upgrade.
+#### $300 off [Pre-Assembly](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
 
-#### Save $300 on [Pre-built](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
+#### Free crafter's caddy ($16 value) with DreamBox purchase!
 
-#### Save $500+ on [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5)!
+##### \*offer does not include White Oak DreamBox
 
-##### Save $150 on [DreamCart](https://www.createroom.com/products/dream-cart-2?rsrrf=HbnB58)
+#### All deals without a code listed are applied automatically!
 
-#### Save $350 on [Sew Station](https://www.createroom.com/products/sew-station?srrf=HbnB5) with DreamBox. Best price of the year! Or $250 off with Sew Station alone. Use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY75**</span></b>
+### When purchased with DreamBox:
+
+##### $100 off [DreamCart 2](https://www.createroom.com/products/dream-cart-2?srrf=HbnB5) and [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?srrf=HbnB5)
+
+##### $100 off Both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?srrf=HbnB5)
+
+### Own a DreamBox?
+
+![](/24_bts_acc.jpg)
+
+#### $75 off [DreamCart 2](https://www.createroom.com/products/dream-cart-2?srrf=HbnB5)
+
+#### 15% off accessories with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY15**</span></b>
+
+#### $75 off Both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?srrf=HbnB5)
 
 ![](</unnamed (1).gif>)
 
-#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY325**</span></b> for $325 (Ergo)/$400 (Shaker) off a [DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5). I also have other permanent codes below!
+#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY385**</span></b> for $385 off a [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5). I also have other permanent codes below!
 
 #####
 
-Refer a friend to buy a DreamBox with me and receive a $25 gift card.
+Did you know that when you refer a friend to work with me you & your friend earn a $25 Create Room gift card!? Once your friend checks out I will send you both your gift cards! Have your friend book a virtual tour with me!
 
 **[12mo 0% financing](https://www.createroom.com/pages/financing/?srrf=HbnB5)**
 
@@ -53,7 +67,7 @@ I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu f
 
 #### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see my [DreamBox 2](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
 
-##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY325**</span></b> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
+##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY385**</span></b> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
 
 ![](/CreateRoom_DreamBox2Launch_2023--1.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7909.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7445.jpg "The new table has no legs in the way!")
 
@@ -76,7 +90,7 @@ More than one cubby can be placed side-by-side or stacked.
 ![](/images/gillespie-stacey4-27-21-55.jpg)![](/images/ss.png)![](/images/gillespie-stacey4-27-21-58.jpg)![/images/img\_0601.jpg](/images/img_0601.jpg "Sew Station")
 Use the code: DREAMBIGSEW to save $50 when buying a Sew Station
 
-#### **$50 off the [DREAMCART](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58).  Use the code** <span style="color:#bf6667;font-size:xx-large;">STACEY50</span>
+#### **$50 off the [DREAMCART](https://www.createroom.com/products/dream-cart?rsrrf=HbnB58) | [DREAMCART 2](https://www.createroom.com/products/dream-cart-2?srrf=HbnB5).  Use the code** <span style="color:#bf6667;font-size:xx-large;">STACEY50</span>
 
 ![](/images/create-room-dreamcart-bts-sale.jpg)![/images/dc.jpg](/images/dc.jpg)![/images/dreamcart.JPG](/images/dreamcart.JPG)![](/images/copy-of-createroom_jenhadfieldvalentines-1111.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-1120.jpg)![](/images/copy-of-createroom_jenhadfieldvalentines-0763.jpg)
 Use the code: DREAMBIG50 to save $50 when buying a DreamCart
@@ -85,7 +99,7 @@ Use the code: DREAMBIG50 to save $50 when buying a DreamCart
 
 ![](/images/create-room-side-tables-bts-sale.jpg)![](/images/dreambox-side-tables-nov-2019jpg.jpg)![/images/gillespie-stacey4-27-21-32\_crop.jpg](/images/gillespie-stacey4-27-21-32_crop.jpg "Side Tables")
 
-The [CROWN with LIGHT (DreamBox 1)](https://www.createroom.com/products/dreambox-crown-with-light?srrf=HbnB5) | [DELUXE CROWN (DreamBox 2)](https://www.createroom.com/products/dreambox-2?variant=40095364743230?rsrrf=HbnB5)
+The [CROWN with LIGHT (DreamBox 1)](https://www.createroom.com/products/dreambox-crown-with-light?srrf=HbnB5) | [DELUXE CROWN (DreamBox 2)](https://www.createroom.com/products/deluxe-crown-w-double-light?srrf=HbnB5)
 ![](/images/noplacelikehomedreambox.jpg)
 
 [Crafter's Caddy](https://www.createroom.com/products/crafters-caddy?srrf=HbnB5)
