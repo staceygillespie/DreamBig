@@ -13,7 +13,7 @@ _template: post
 
 <!---->
 
-##### Check out the [4th of July sale! Starts 6/27!](/current-deals)
+##### Check out the [Back to school sale! Starts 8/1!](/current-deals)
 
 [Check out the DreamBox 2!](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)
 
