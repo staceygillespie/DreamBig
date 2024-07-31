@@ -23,7 +23,7 @@ _template: page
 
 #### $300 off [Pre-Assembly](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
 
-#### Free crafter's caddy ($16 value) with DreamBox purchase!
+#### Free [crafter's caddy](https://www.createroom.com/products/sand-crafters-caddy?srrf=HbnB5) ($16 value) with DreamBox purchase!
 
 ##### \*offer does not include White Oak DreamBox
 
