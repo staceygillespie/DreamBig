@@ -109,7 +109,7 @@ I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu f
 
 ### [Here's what you can expect during a consultation!](https://www.createroom.com/blogs/news/creator-consultant-stacey-gillespie/?srrf=HbnB5)
 
-#### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see my [DreamBox 2](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
+#### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see mine, [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
 
 ##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY400**</span></b> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
 
