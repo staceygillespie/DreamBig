@@ -13,41 +13,69 @@ _template: page
 
 ![](/24_bts_title.jpg)![](/24_bts_vid.gif)
 
-### Back to school sale with over $900 in savings! Starts 8/1 at 10 am MT, until 8/6!
+### Labor Day sale! Starts 8/29 at 10 am MT!
 
-#### $385 off the [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5) with code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY385**</span></b>
+#### For the First 100 only:
 
-#### $50 off [Deluxe Crown](https://www.createroom.com/products/deluxe-crown-w-double-light?srrf=HbnB5)
+##### Free [Deluxe Crown](https://www.createroom.com/products/deluxe-crown-w-double-light?srrf=HbnB5)
 
-#### $50 off [Full Tote Upgrade](https://www.createroom.com/products/dreambox-2?variant=40095364743230?srrf=HbnB5)
+##### Extra $50 off the [Shaker](https://www.createroom.com/products/dreambox-2?variant=40095364874302?srrf=HbnB5)
 
-#### $300 off [Pre-Assembly](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
+##### Extra $25 off the [full set of totes](https://www.createroom.com/products/dreambox-2?variant=40095364743230?srrf=HbnB5)
 
-#### Free [crafter's caddy](https://www.createroom.com/products/sand-crafters-caddy?srrf=HbnB5) ($16 value) with DreamBox purchase!
+#### $400 off the [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5) with code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY400**</span></b>
 
-##### \*offer does not include White Oak DreamBox
+#### $250 off [Pre-Assembly](https://www.createroom.com/blogs/news/everything-you-need-to-know-about-the-dreambox-2-pre-built-service/?srrf=HbnB5)
 
 #### All deals without a code listed are applied automatically!
 
 ### When purchased with DreamBox:
 
-##### $100 off [DreamCart 2](https://www.createroom.com/products/dream-cart-2?srrf=HbnB5) and [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?srrf=HbnB5)
+##### FREE [Deluxe Crown w/ Double Light](https://www.createroom.com/products/deluxe-crown-w-double-light?srrf=HbnB5)
 
-##### $100 off Both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?srrf=HbnB5)
+##### $25 off [Full Tote package](https://www.createroom.com/products/dreambox-2?variant=40095364743230?srrf=HbnB5)
+
+##### $100 off both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?srrf=HbnB5)
+
+##### $45 off [one Side Table](https://www.createroom.com/products/dreambox-2-side-tables?variant=40098249998398?srrf=HbnB5)
+
+##### $100 off [DreamCart 2](https://www.createroom.com/products/dream-cart-2?srrf=HbnB5)
+
+##### $200 off [DreamStation](https://www.createroom.com/products/dream-station?srrf=HbnB5)
+
+##### $10 off [2 Drawers](https://www.createroom.com/products/2-built-in-drawers?srrf=HbnB5)
+
+##### 15% off [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5)
 
 ### Own a DreamBox?
 
 ![](/24_bts_acc.jpg)
 
-#### $75 off [DreamCart 2](https://www.createroom.com/products/dream-cart-2?srrf=HbnB5)
+#### 15% off [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5) with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY15**</span></b>
 
-#### 15% off accessories with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY15**</span></b>
+##### $75  [DreamCart 2](https://www.createroom.com/products/dream-cart-2?srrf=HbnB5)
 
-#### $75 off Both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?srrf=HbnB5)
+##### $125 off the [DreamStation](https://www.createroom.com/products/dream-station?srrf=HbnB5)
+
+##### $75 off both [Side Tables](https://www.createroom.com/products/dreambox-2-side-tables?srrf=HbnB5)
+
+##### $45 off [one Side Table](https://www.createroom.com/products/dreambox-2-side-tables?variant=40098249998398?srrf=HbnB5)
 
 ![](</unnamed (1).gif>)
 
-#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY385**</span></b> for $385 off a [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5). I also have other permanent codes below!
+### ADDITIONAL LABOR DAY SPECIAL:
+
+##### Save up to $500 on a [Limited Edition DreamBox](https://www.createroom.com/collections/dreambox-limited-collection?srrf=HbnB5) Package!
+
+##### Two beautiful color options:
+
+##### [White Oak](https://www.createroom.com/products/white-oak-deluxe-dreambox-package?srrf=HbnB5) - Back by popular demand! Only 30 in stock!
+
+##### [Classic Grey](https://www.createroom.com/products/classic-gray-deluxe-dreambox-package?srrf=HbnB5) - New! Only 30 in stock!
+
+##### \*no additional discount codes can be used
+
+#### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY400**</span></b> for $400 off a [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5). I also have other permanent codes below!
 
 #####
 
@@ -67,7 +95,7 @@ I'd appreciate it if you choose my name, ***Stacey G***, in the drop-down menu f
 
 #### Book a <b><span style="color:#bf6667;font-size:large;">***One on One Consultation***</span></b> with me to talk about what setup you'd like for your home or to see my [DreamBox 2](https://calendly.com/staceycreateroom/tour-the-dreambox-2), [Virtual](https://calendly.com/staceycreateroom/30min) or [phone](https://calendly.com/staceycreateroom/phone-consultation) consultation.
 
-##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY385**</span></b> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
+##### If you decide to purchase with these great prices, I'd appreciate it if you use my code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY400**</span></b> and choose my name, ***Stacey G***, in the dropdown menu for who helped you.
 
 ![](/CreateRoom_DreamBox2Launch_2023--1.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7909.jpg) ![](/CreateRoom_DreamBox2Launch_2023-7445.jpg "The new table has no legs in the way!")
 
