@@ -15,9 +15,9 @@ _template: page
 
 ### Labor Day sale! Starts 8/29 at 10 am MT!
 
-![](/24laborFirst.jpg)![](/24laborFirst.gif)
-
 ***
+
+![](/24laborFirst.jpg)![](/24laborFirst.gif)
 
 #### For the First 100 only:
 
@@ -37,6 +37,8 @@ _template: page
 
 #### All deals without a code listed are applied automatically!
 
+***
+
 ### When purchased with DreamBox:
 
 ##### FREE [Deluxe Crown w/ Double Light](https://www.createroom.com/products/deluxe-crown-w-double-light?srrf=HbnB5)
@@ -55,9 +57,11 @@ _template: page
 
 ##### 15% off [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5)
 
-### Own a DreamBox?
-
 ![](/24laborAccessories.jpg)
+
+***
+
+### Own a DreamBox?
 
 #### 15% off [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5) with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY15**</span></b>
 
@@ -70,6 +74,8 @@ _template: page
 ##### $45 off [one Side Table](https://www.createroom.com/products/dreambox-2-side-tables?variant=40098249998398?srrf=HbnB5)
 
 ![](</unnamed (1).gif>)
+
+***
 
 ### ADDITIONAL LABOR DAY SPECIAL:
 
@@ -84,6 +90,8 @@ _template: page
 ##### \*no additional discount codes can be used
 
 ![](/24LaborLimited.jpg)
+
+***
 
 #### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY400**</span></b> for $400 off a [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5). I also have other permanent codes below!
 
