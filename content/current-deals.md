@@ -11,9 +11,13 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-![](/24_bts_title.jpg)![](/24_bts_vid.gif)
+![](/24laborSale.jpg)![](/24laborSale.gif)
 
 ### Labor Day sale! Starts 8/29 at 10 am MT!
+
+![](/24laborFirst.jpg)![](/24laborFirst.gif)
+
+***
 
 #### For the First 100 only:
 
@@ -22,6 +26,10 @@ _template: page
 ##### Extra $50 off the [Shaker](https://www.createroom.com/products/dreambox-2?variant=40095364874302?srrf=HbnB5)
 
 ##### Extra $25 off the [full set of totes](https://www.createroom.com/products/dreambox-2?variant=40095364743230?srrf=HbnB5)
+
+***
+
+![](/24laborDreamBox.jpg)
 
 #### $400 off the [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5) with code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY400**</span></b>
 
@@ -49,7 +57,7 @@ _template: page
 
 ### Own a DreamBox?
 
-![](/24_bts_acc.jpg)
+![](/24laborAccessories.jpg)
 
 #### 15% off [accessories](https://www.createroom.com/collections/accessories?srrf=HbnB5) with code: <b><span style="color:#bf6667;font-size:xx-large;">**STACEY15**</span></b>
 
@@ -74,6 +82,8 @@ _template: page
 ##### [Classic Grey](https://www.createroom.com/products/classic-gray-deluxe-dreambox-package?srrf=HbnB5) - New! Only 30 in stock!
 
 ##### \*no additional discount codes can be used
+
+![](/24LaborLimited.jpg)
 
 #### You can use my code <b><span style="color:#bf6667;font-size:xx-large;">**STACEY400**</span></b> for $400 off a [DreamBox 2](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5). I also have other permanent codes below!
 
