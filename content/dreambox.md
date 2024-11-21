@@ -34,8 +34,6 @@ Our best DreamBox EVER!
 * ENHANCED STRENGTH, ENDURING QUALITY
   “Designed to hold up to 800 lbs, the DreamBox 2 features a reinforced frame and innovative custom hinges.”
 
-Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:large;">**DreamBox 2**</span> [here](https://form.jotform.com/Gillespie_Stacey/dreambox-2 "DreamBox 2").
-
 <!---->
 
 #### *The* *[DreamBox](https://www.createroom.com/products/dreambox-3/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
