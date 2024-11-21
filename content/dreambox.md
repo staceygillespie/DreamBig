@@ -13,9 +13,9 @@ _template: post
 
 <!---->
 
-##### Check out the [Labor Day sale! Starts 8/29!](/current-deals)
+##### Check out the [Black Friday sale! Starts 11/21!](/current-deals)
 
-[Check out the DreamBox 2!](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)
+[Check out the DreamBox 3!](https://www.createroom.com/products/dreambox-3/?srrf=HbnB5)
 
 Our best DreamBox EVER!
 
@@ -38,9 +38,9 @@ Sign up to learn the details of the <b> <span style="color:#bf6667;font-size:lar
 
 <!---->
 
-#### *The* *[DreamBox](https://www.createroom.com/products/dreambox-2/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
+#### *The* *[DreamBox](https://www.createroom.com/products/dreambox-3/?srrf=HbnB5)* *is an all-in-one cabinet that closes completely to hide away all of my tools and projects and opens into a full studio craft room complete with a table and overhead light!*
 
-##### Get a **$300 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEY300**</span>
+##### Get a **$300 discount** off a DreamBox using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEYDB3**</span>
 
 ##### Get a **$100 discount** off a [DreamStation](https://www.createroom.com/products/dream-station?srrf=HbnB5) by using my code:<b> <span style="color:#bf6667;font-size:large;">**STACEYDS**</span>
 
