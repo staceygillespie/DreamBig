@@ -11,9 +11,9 @@ _template: page
 
 [DreamBox page](/dreambox)
 
-![](/9b154c10-0c26-4a16-9ce0-48dc044ce48b.jpeg)![](/14caaa1b-94e1-4ef9-b25e-8d6923a9520a.gif)
+![](/mothersday25title.jpeg)![](/mothersday25.gif)
 
-### Black Friday sale! Begins on 11/21, [early access at 10 am MT](https://www.createroom.com/pages/early-access-black-friday-sale/?srrf=HbnB5)! Up to $1,800 in savings + FREE gifts and delivery by Christmas for first 100
+### The much anticipated Mother's Day Sale is almost here, featuring some of our best deals EVER and special extras for the first 100 ✨ [Early access when you shop with me starting Friday, 5/2 at 10 am MT]()! Up to $1,500 in savings + FREE Deluxe Crown w/ Double Light for first 100 DreamBox orders
 
 We have 5 [DreamBox](https://www.createroom.com/products/dreambox-3?srrf=HbnB5) packages:
 
