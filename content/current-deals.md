@@ -13,32 +13,11 @@ _template: page
 
 ![](/mothersday25title.jpeg)![](/mothersday25.gif)
 
-### The much anticipated Mother's Day Sale is almost here, featuring some of our best deals EVER and special extras for the first 100 ✨ [Early access when you shop with me starting Friday, 5/2 at 10 am MT](https://calendly.com/staceycreateroom?utm_source=Klaviyo\&utm_medium=email\&utm_campaign=AMBASSADORS%20%7C%20Stacey%20%7C%20Mother%27s%20Day%20%2725%20%231%20%7C%20Sale%20Announcement%20%7C%204%2F28%20%2801JSYF59VQ119JM9WKEQAY10J6%29\&triplesource=klaviyo\&utm_klaviyo_id=01HYEJG6YF54AEMBHK4SYA8Y88&_kx=O3FW2vFBim2sSrGZRzznpXFMYwV47R7pARDGiQuBAi4.UrpzQi)! Up to $1,500 in savings + FREE Deluxe Crown w/ Double Light for first 100 DreamBox orders
-
-We have 5 [DreamBox](https://www.createroom.com/products/dreambox-3?srrf=HbnB5) packages:
-
-1. The [Essentials DreamBox package](https://www.createroom.com/products/dreambox-3-essentials-package?variant=41356891160638?srrf=HbnB5) (half set of totes).
-2. The [Creator's Pick](https://www.createroom.com/products/dreambox-3-creators-pick?variant=41403788066878?srrf=HbnB5) (full set of totes + double light)
-3. The [Signature package](https://www.createroom.com/products/dreambox-3-signature-package?variant=41436131229758?srrf=HbnB5) (full set of totes + double light + shaker doors).
-   \* Plus two colors:
-4. The [Signature White Oak](https://www.createroom.com/products/dreambox-3-signature-package?variant=41436131262526?srrf=HbnB5) (has a white Oak finish on the outside)
-5. The [Gray Deluxe DreamBox 2](https://www.createroom.com/products/classic-gray-deluxe-dreambox-package?srrf=HbnB5) (only a few left)
-
-The Essentials is $2599, the Creator's Pick is $3199 and the Signature is $3499. The White Oak Signature is $3999 and the Gray is on sale for $32 346. You can also add on accessories that are in the picture like the tool cubby and paper organizer.
+### The much anticipated Mother's Day Sale is almost here, featuring some of our best deals EVER and special extras for the first 100 ✨ [Early access when you shop with me starting Friday, 5/2 at 10 am MT](https://calendly.com/staceycreateroom?utm_source=Klaviyo\&utm_medium=email\&utm_campaign=AMBASSADORS%20%7C%20Stacey%20%7C%20Mother%27s%20Day%20%2725%20%231%20%7C%20Sale%20Announcement%20%7C%204%2F28%20%2801JSYF59VQ119JM9WKEQAY10J6%29\&triplesource=klaviyo\&utm_klaviyo_id=01HYEJG6YF54AEMBHK4SYA8Y88&_kx=O3FW2vFBim2sSrGZRzznpXFMYwV47R7pARDGiQuBAi4.UrpzQi?srrf=HbnB5)! Up to $1,500 in savings + FREE Deluxe Crown w/ Double Light for first 100 DreamBox orders
 
 ***
 
 ![](/mothersday25deluxecrown.gif)
-
-### FREE GIFT OFFER for the First 100 only:
-
-#### Buy the [DreamBox Center](https://www.createroom.com/products/dreambox-3-center?srrf=HbnB5) - FREE [DreamBox Ornament](https://www.createroom.com/products/dreambox-ornament?srrf=HbnB5) + [Crown Light](https://www.createroom.com/products/deluxe-crown-w-double-light)
-
-#### Buy the [DreamBox 3 Essentials](https://www.createroom.com/products/dreambox-3-essentials-package?variant=41356891160638?srrf=HbnB5) - FREE DreamBox Ornament + [Mug](https://www.createroom.com/products/creator-mug?srrf=HbnB5) + [8 Jars](https://www.createroom.com/products/8-dreambox-jars?srrf=HbnB5)
-
-#### Buy the [DreamBox 3 Creator's Pick](https://www.createroom.com/products/dreambox-3-creators-pick?variant=41403788066878?srrf=HbnB5) - FREE DreamBox Ornament + Mug + [Mini Totes](https://www.createroom.com/products/mini-totes?srrf=HbnB5)
-
-#### Buy the [DreamBox 3 Signature](https://www.createroom.com/products/dreambox-3-signature-package?variant=41436131229758?srrf=HbnB5) - FREE DreamBox Ornament + Mug + Mini Totes + [Dreamer's Journal](https://www.createroom.com/products/dream-big-notebook?srrf=HbnB5)
 
 ***
 
