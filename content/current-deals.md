@@ -49,9 +49,7 @@ _template: page
 
 ***
 
-#### [DreamBox Organization Guide](https://www.canva.com/design/DAGbu9217K8/UFSMlrwERbcn4tb6bX0f9Q/view?utm_content=DAGbu9217K8\&utm_campaign=designshare\&utm_medium=link2\&utm_source=uniquelinks\&utlId=h298c04e1b0?srrf=HbnB5)
-
-to help you on your journey
+#### [DreamBox Organization Guide](https://www.canva.com/design/DAGbu9217K8/UFSMlrwERbcn4tb6bX0f9Q/view?utm_content=DAGbu9217K8\&utm_campaign=designshare\&utm_medium=link2\&utm_source=uniquelinks\&utlId=h298c04e1b0?srrf=HbnB5) to help you on your journey
 
 ##### I also have other permanent codes below!
 
