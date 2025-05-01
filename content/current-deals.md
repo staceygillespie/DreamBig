@@ -23,7 +23,7 @@ _template: page
 
 ***
 
-#### $500 off [DreamBox](https://www.createroom.com/products/dreambox-3?srrf=HbnB5) ([Ergo](https://www.createroom.com/products/dreambox-3-0?variant=40151212261438?srrf=HbnB5)/[Shaker](https://www.createroom.com/products/dreambox-3-0?variant=40151212392510?srrf=HbnB5)) with code <b><span style="color:#bf6667;font-size:xx-large;">STACEYDB3</span></b> - Starting price $2,099
+#### $500 off [DreamBox](https://www.createroom.com/products/dreambox-3-0?srrf=HbnB5) ([Ergo](https://www.createroom.com/products/dreambox-3-0?variant=40151212261438?srrf=HbnB5)/[Shaker](https://www.createroom.com/products/dreambox-3-0?variant=40151212392510?srrf=HbnB5)) with code <b><span style="color:#bf6667;font-size:xx-large;">STACEYDB3</span></b> - Starting price $2,099
 
 #### $500 off [Pre-Assembly](https://www.createroom.com/blogs/news/dreambox-pre-assembly-and-delivery-explained?_pos=5&_sid=5ca197ee2&_ss=r?srrf=HbnB5) (no code required) - $99 Price
 
@@ -48,6 +48,10 @@ _template: page
 ![](/005dd30e-0331-4875-a75b-4f8aea05dbb7.png)
 
 ***
+
+#### [DreamBox Organization Guide](https://www.canva.com/design/DAGbu9217K8/UFSMlrwERbcn4tb6bX0f9Q/view?utm_content=DAGbu9217K8\&utm_campaign=designshare\&utm_medium=link2\&utm_source=uniquelinks\&utlId=h298c04e1b0?srrf=HbnB5)
+
+to help you on your journey
 
 ##### I also have other permanent codes below!
 
